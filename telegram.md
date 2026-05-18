@@ -7,6 +7,204 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 20:43
+---
+
+## VahidOOnLine — post 240831
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240831_1779124421.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرنگار شبکه سی‌ان‌بی‌سی روز دوشنبه ۲۸ اردیبهشت‌ماه در شبکه اجتماعی اکس به نقل از یک مقام آمریکایی گزارش داد ادعای رسانه‌های حکومتی جمهوری اسلامی مبنی بر موافقت واشنگتن با لغو تحریم‌های نفتی تهران در جریان مذاکرات، نادرست است.
+
+این در حالی است که پیش‌تر رسانه‌های حکومتی جمهوری اسلامی از موافقت ایالات متحده برای لغو برخی تحریم‌های نفتی علیه ایران در طول مذاکرات خبر داده بودند. همزمان آکسیوس به نقل از یک مقام آمریکایی نوشت: «هیچ کاهش تحریمی بدون اقدام متقابل ایران رایگان اتفاق نخواهد افتاد.»
+
+رسانه آکسیوس عصر دوشنبه گزارش داده بود کاخ سفید پیشنهاد جدید تهران را برای دستیابی به توافق کافی نمی‌داند و معتقد است پیشرفت قابل‌توجهی در مذاکرات حاصل نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240830
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240830_1779124422.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مستند «تمرین‌هایی برای یک انقلاب» ساخته پگاه آهنگرانی، در حاشیه جشنواره فیلم کن، جایزه ویژه هیئت داوران رویداد مستند «گلدن گلوبز» را با همکاری بنیاد «آرتمیس رایزینگ» دریافت کرد؛ رویدادی که با همکاری بخش «کن داکس»، مجله ورایتی و بازار فیلم کن برگزار می‌شود.
+این برنامه به مستندهای اجتماعی و سیاسی اختصاص دارد و برگزارکنندگان آن می‌گویند هدفش حمایت از فیلم‌سازی مستند، به‌عنوان ابزاری برای شکل دادن به روایت‌ها و گفت‌وگوهای جهانی، است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 341880
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341880_1779124423.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Alex Murdaugh's defense team holds press conference
+https://twitter.com/i/broadcasts/1AxRnaOoBmrxl
+</div>
+
+## pm_afshaa — post 90969
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴واشنگتن پست:اسرائیل منتظر چراغ سبز آمریکا برای شروع عملیات است
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337817
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337817_1779124424.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل گزارش داد انتظار می‌رود دونالد ترامپ ظرف ۲۴ ساعت آینده درباره اقدام نظامی احتمالی علیه جمهوری اسلامی تصمیم‌گیری کند.
+
+گفت‌وگو با فرزین ندیمی، پژوهش‌گر امور دفاعی و امنیتی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337816
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337816_1779124426.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۳ اسرائیل گزارش داد هدف حمله احتمالی آمریکا، آسیب به حکومت ایران و بازگرداندن جمهوری اسلامی به میز مذاکره از موضع ضعف است.
+
+این در حالی است که دونالد ترامپ در ابتدای جنگ پیشین با جمهوری اسلامی بر تغییر رژیم تاکید کرده بود.
+
+گفت‌وگو با نجات بهرامی، تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337815
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337815_1779124427.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مستند «تمرین‌هایی برای یک انقلاب» ساخته پگاه آهنگرانی، در حاشیه جشنواره فیلم کن، جایزه ویژه هیئت داوران رویداد مستند «گلدن گلوبز» را با همکاری بنیاد «آرتمیس رایزینگ» دریافت کرد؛ رویدادی که با همکاری بخش «کن داکس»، مجله ورایتی و بازار فیلم کن برگزار می‌شود.
+این برنامه به مستندهای اجتماعی و سیاسی اختصاص دارد و برگزارکنندگان آن می‌گویند هدفش حمایت از فیلم‌سازی مستند، به‌عنوان ابزاری برای شکل دادن به روایت‌ها و گفت‌وگوهای جهانی، است.
+</div>
+
+## Shin_Persian — post 6065
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📦 mhrv-rs v1.9.30 released
+
+• Make the Full mode CodeFull.gs path a little lighter
+
+Files (Android APKs, Windows, macOS, Linux, OpenWRT) on the files channel:
+
+👉 v1.9.30 — all files with SHA-256
+
+Channel:
+https://t.me/mhrv_rs
+or: https://t.me/+R1OyoHX2boA1ZDgx
+
+#v1930
+</div>
+
+## FarsiVOA — post 218077
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گفت‌و‌گو با یاسین اهوازی، کارشناس مسائل خاورمیانه، درباره تشدید اقدامات بی‌ثبات‌کننده رژیم ایران با ادامه حملات به کشورهای منطقه
+</div>
+
+## Persian_Trend_Official — post 14428
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی پرشین ترند pinned «ساعت 21 لایو رو آغاز میکنم»
+</div>
+
+## Persian_Trend_Official — post 14427
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت 21 لایو رو آغاز میکنم
+</div>
+
+## Persian_Trend_Official — post 14426
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14426_1779124429.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل:
+
+ایران تنها چند روز، نه هفته‌ها، فرصت دارد تا چیزی به رئیس‌جمهور ترامپ ارائه دهد که بن‌بست را بشکند.
+
+رئیس‌جمهور ترامپ تمایل دارد اقدام نظامی انجام دهد مگر اینکه ظرف چند روز چیزی از ایران دریافت کند.
+
+
+🦁Phantom
+🦁
+
+
+✍persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20356
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20356_1779124430.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کانال ۱۲ اسرائیل : آمریکا پیشنهاد جدید و بازنگری شده ایران را رد کرده است. @IranianMinds
+</div>
+
+## IranianMinds — post 20355
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کانال ۱۲ اسرائیل :
+
+آمریکا پیشنهاد جدید و بازنگری شده ایران را رد کرده است.
+
+@IranianMinds
+</div>
+
+## alonews — post 120919
+
+<div align="center">
+  <a href="telegram/content/alonews_120919_1779124430.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به نیویورک پست : ایران می‌دونه که به زودی چه اتفاقی براش میوفته، هیچ امتیازی داده نخواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120918
+
+<div align="center">
+  <a href="telegram/content/alonews_120918_1779124431.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سنتکام: تا الان 85کشتی تجاری رو برگردوندیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 20:33
 ---
 
