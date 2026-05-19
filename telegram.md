@@ -7,6 +7,102 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 23:58
+---
+
+## VahidOOnLine — post 241048
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241048_1779222537.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وکیل مدافع پژمان جمشیدی از صدور حکم پرونده موکلش در شعبه ۹ دادگاه کیفری یک استان تهران خبر داد و اعلام کرد این رای بدوی بوده و ظرف ۲۰ روز قابل اعتراض است.
+او در گفتگو با ایسنا تاکید کرد تا زمان قطعی شدن حکم، جزئیات و محتوای رای اعلام نخواهد شد.
+در همین حال، ساعاتی پیش سایت امتداد به نقل از شاکی پرونده گزارش داد که حکم به وی ابلاغ شده و به گفته او، پژمان جمشیدی به ۹۹ ضربه شلاق تعزیری محکوم شده است. شاکی همچنین تاکید کرد، مدارک موجود در پرونده به نفع او بوده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11699
+
+
+
+
+## WithYashar — post 11698
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جای یه b2 خشکل روی میزت خالیه ❤️
+</div>
+
+## IranIntlTV — post 337996
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337996_1779222538.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت احتمال حمله دوباره آمریکا به ایران وجود دارد اما تصمیم نهایی هنوز گرفته نشده است. او افزود دستور حمله اخیر را در لحظات آخر متوقف کرده، چون مذاکرات با مشارکت چند کشور منطقه‌ای در حال پیشرفت است.
+
+ارزیابی جمشید برزگر، روزنامه‌نگار و تحلیلگر سیاسی
+@iranintltv
+</div>
+
+## FarsiVOA — post 218173
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جی دی ونس، معاون رئیس جمهوری آمریکا، روز سه‌شنبه ۲۹ اردیبهشت با حضور در سالن کنفرانس‌های مطبوعاتی کاخ سفید به پرسش‌های خبرنگاران، که بخش عمده‌ای از آن درباره وضعیت ایران و منطقه بود، پاسخ داد. صدای آمریکا این جلسه را به صورت مستفیم و با ترجمه همزمان پژواک کیومرثی پخش کرد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218172
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺شهاب دلیلی که پس از سفر به ایران توسط جمهوری اسلامی دستگیر و زندانی شده بود پس از ده سال به آمریکا بازگشت
+
+▪️سازمان «کمک به گروگان‌ها در سراسر جهان» اعلام کرد شهاب دلیلی، ایرانی مقیم آمریکا که از سال ۱۳۹۵ جمهوری اسلامی او را زندانی کرده بود، آزاد شد و به آمریکا بازگشت.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-us-hostage-shahab-dalili-captain-prison/8151618.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14494
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه صوتی لایو امشب در اسپاتیفای : https://open.spotify.com/episode/1E7uxKoNvLatPFATA5y8Jc?si=j4CwM-EiQDaOyw4ByYHJZw
+</div>
+
+## Persian_Trend_Official — post 14493
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14493_1779222539.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه صوتی لایو امشب در اسپاتیفای :
+
+https://open.spotify.com/episode/1E7uxKoNvLatPFATA5y8Jc?si=j4CwM-EiQDaOyw4ByYHJZw
+</div>
+
+## alonews — post 121179
+
+<div align="center">
+  <img src="telegram/content/alonews_121179_1779222540.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🏴󠁧󠁢󠁥󠁮󠁧󠁿
+🤩رسمی : آرسنال قهرمان فصل 2025/2026 پریمیرلیگ شد
+
+
+❤️پروژه آرتتا بلاخره جواب داد
+
+@AloSport
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 23:53
 ---
 
