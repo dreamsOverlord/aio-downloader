@@ -7,6 +7,109 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 16:42
+---
+
+## VahidOOnLine — post 240957
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240957_1779196360.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ مقامات امارات متحده عربی از راه‌اندازی یک «گذرگاه لجستیکی» جدید میان بندر شارجه و بندر صحار در عمان به عنوان مسیری جایگزین برای دور زدن تنگه هرمز خبر دادند. طبق اعلام اداره گمرک شارجه، در این شاهراه زمینی که از ۲۴ اردیبهشت آغاز به کار کرده است، کامیون‌ها بار و کالاهای تجاری را میان دو کشور جابه‌جا می‌کنند.
+
+این تصمیم در پی بحران در تنگه هرمز اتخاذ شده است که به دلیل درگیری‌ها میان جمهوری اسلامی با آمریکا و اسرائیل، تردد دریایی در آن با سقوطی ۹۰ درصدی مواجه شده و قیمت جهانی نفت را ۴۰ درصد افزایش داده است. پیش از این، حدود ۲۰ درصد از نفت خام جهان از این آبراه عبور می‌کرد.
+
+مسئولان تاکید کرده‌اند که این گذرگاه زمینی جدید، برای حمل نفت و گاز نیست، بلکه عمدتا برای جابه‌جایی کالاهای مصرفی، مواد غذایی، اقلام دارویی و محموله‌های صنعتی که نیاز به شناورهای غول‌پیکر ندارند، طراحی شده است تا زنجیره تامین این کالاها در منطقه تضمین شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240956
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️کرملین پیش از سفر ولادیمیر پوتین به پکن، روز سه‌شنبه ۲۹ اردیبهشت‌ماه، پیام ویدیویی رئیس‌جمهوری روسیه را منتشر کرد؛ پیامی که در آن پوتین از روابط «بی‌سابقه» مسکو و پکن تمجید کرد و شی جین‌پینگ را «دوست قدیمی و خوب» خود خواند.
+
+پوتین با استقبال از لغو متقابل ویزا میان دو کشور گفت روسیه و چین بدون ائتلاف علیه کسی، در پی «صلح و رفاه همگانی» هستند و به‌صورت هماهنگ از حقوق بین‌الملل و منشور سازمان ملل دفاع می‌کنند.
+
+این سفر تنها چند روز پس از میزبانی شی جین‌پینگ از دونالد ترامپ انجام می‌شود و بیست‌وپنجمین سفر پوتین به چین است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 341926
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341926_1779196360.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The head of the World Health Organization warning over 130 people have already died of suspected Ebola cases around the world since the latest outbreak began.
+
+The W.H.O. also sounding the alarm about the rapid "scale and speed" of the surging Ebola infections in eastern Congo and Uganda, with over 500 suspected cases.
+
+This comes after an American man working as a medical missionary in the Democratic Republic of Congo tested positive for the deadly virus.
+</div>
+
+## IranIntlTV — post 337928
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337928_1779196361.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سجاد دهقانی شامگاه ۱۹ دی، در شب تولدش، در سه‌راه برق بندرعباس بر اثر اصابت دو گلوله جان باخت. یک روز پیش از آن نیز، اجمین مسیحی، جوان ۲۷ ساله ارمنی، در میدان هفت‌حوض تهران با شلیک مستقیم کشته شد. شاهدان به ایران‌اینترنشنال گفته‌اند او در صف اول معترضان حضور داشت و پیش از اصابت گلوله شعار «آزادی» سر می‌داد.
+جزییات بیشتر با فرنوش فرجی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## alonews — post 121098
+
+<div align="center">
+  <a href="telegram/content/alonews_121098_1779196363.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وضعیت هوای تهران قرمز (ناسالم برای همه) شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121097
+
+<div align="center">
+  <a href="telegram/content/alonews_121097_1779196363.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تلگرام به خطر افتاد
+‼️
+
+
+🔴بابک زنجانی رسما فعالیت شبکه اجتماعی خودش به اسم «مای دات» رو استارت زد تا این سوپر اپلیکیشن با تلگرام رقابت کنه.
+
+
+🤔از جیب ملت به نفع حاکمیت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121096
+
+<div align="center">
+  <a href="telegram/content/alonews_121096_1779196365.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیویورک‌تایمز: اظهارات ترامپ درباره تعویق جنگ ممکن است فریب باشد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 16:32
 ---
 
