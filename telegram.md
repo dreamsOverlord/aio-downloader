@@ -7,6 +7,377 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 20:13
+---
+
+## VahidOOnLine — post 241001
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نامزد آیدا عقیلی، جاویدنام انقلاب ملی، در ویدیویی بر سر مزار او توضیح داد که دغدغه و بحث این جوان معترض در خانه، موضوع نان مردم و ظلم به آن‌ها بود؛ تا اینکه شاهزاده رضا پهلوی فراخوان داد و آیدا به خیابان رفت. او گفت که خود حکومت اماکنی را آتش می‌زد و به گردن مردم معترض می‌انداخت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241000
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241000_1779209002.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+ژنرال برد کوپر، فرمانده ستاد فرماندهی مرکزی آمریکا، سنتکام، به کنگره گفت مدرسه میناب که در جریان جنگ هدف قرار گرفت، «در یک پایگاه فعال موشک‌های کروز» قرار داشت.
+
+او گفت تحقیقات ارتش آمریکا درباره انفجار در این مدرسه «پیچیده» است، زیرا این مرکز در یک سایت فعال موشکی جمهوری اسلامی واقع شده بود.
+
+رویترز پیش‌تر گزارش داده بود تحقیقات اولیه داخلی ارتش آمریکا نشان می‌دهد نیروهای آمریکایی «احتمالاً» مسئول تخریب مدرسه دخترانه‌ای در میناب بوده‌اند؛ موضوعی که پنتاگون بعداً سطح بررسی آن را ارتقا داد.
+
+در این حادثه که در نخستین روز درگیری‌ها ۹ اسفند ۱۴۰۴ رخ داد، ۱۶۸ کودک که بیشتر آن‌ها دختر بودند، کشته شدند.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11679
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرمانده سنتکام : چند تا ناوشکن آمریکایی اخیراً از تنگه هرمز عبور کردن
+
+ایران از هر نظر خیلی ضعیف‌تر از قبل شده
+@withyashar
+</div>
+
+## mwarmonitor — post 9315
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸یک یگان ارتش آمریکا از هفته‌ها قبل از یک حمله مرگبار ایران به پست فرماندهی آن‌ها در کویت درخواست افزایش و تقویت پشتیبانی پزشکی کرده بود، اما به گفته سربازان، این درخواست نادیده گرفته شد. برخی از بازماندگان این حمله همچنین گفته‌اند که دست‌کم یکی از سربازانی که کشته شد، در صورت وجود امکانات پزشکی بیشتر در محل، قابل نجات بود.» CBS
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9314
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇱«روزنامه اسرائیل هیوم به نقل از منابع: شهادت نتانیاهو در دادگاه که قرار بود روز چهارشنبه برگزار شود، به دلیل امنیتی لغو شد.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9313
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9313_1779209003.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️نیروی هوایی آمریکا (USAF) بوئینگ KC-135 استراتوتانکر (سوخت‌رسان) – ۱ فروند AE04EA 61-0276 – REACH 756 AE07BA 62-3557 – REACH 164 ✈️پروازهای REACH 756 و REACH 164 امروز صبح از فرودگاه بن گوریون تل‌آویو به سمت پایگاه هوایی RAF Mildenhall در بریتانیا در حرکت…
+</div>
+
+## FoxNewsTwitter — post 341942
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341942_1779209004.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Trump bucks national Senate Republicans and endorses Ken Paxton instead of incumbent John Cornyn in GOP Texas primary runoff
+</div>
+
+## FoxNewsTwitter — post 341941
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341941_1779209004.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @FoxTrueCrime: COURT CONVOY: Tyler Robinson arrives at the Utah County, Utah courthouse in an armored SWAT vehicle.
+
+Today, his attorneys will fight to seal evidence and testimony from police, and also have prosecutors sanctioned for speaking about his case outside the courtroom.
+</div>
+
+## IranIntlTV — post 337961
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337961_1779209007.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیتراول با نیوشا صارمی، سه‌شنبه ۲۹ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 337960
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نامزد آیدا عقیلی، جاویدنام انقلاب ملی، در ویدیویی بر سر مزار او توضیح داد که دغدغه و بحث این جوان معترض در خانه، موضوع نان مردم و ظلم به آن‌ها بود؛ تا اینکه شاهزاده رضا پهلوی فراخوان داد و آیدا به خیابان رفت. او گفت که خود حکومت اماکنی را آتش می‌زد و به گردن مردم معترض می‌انداخت.
+</div>
+
+## IranIntlTV — post 337959
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337959_1779209008.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیتراول با نیوشا صارمی، سه‌شنبه ۲۹ اردیبهشت
+@iranintltv
+</div>
+
+## Shin_Persian — post 6094
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6094_1779209010.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+DefenceGeek 🇬🇧 ✓ @DefenceGeek Tue, 19 May 2026 16:23:09 UTC Tanker Swaps - Cloning? #FreeIran‌ --- Operation EPIC FURY / Project FREEDOM --- A pair of KC-135 "Stratotanker" aircraft that had previously left the CENTCOM region (more than 2 weeks ago) back…
+</div>
+
+## Shin_Persian — post 6093
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+DefenceGeek 🇬🇧 ✓ @DefenceGeek
+Tue, 19 May 2026 16:23:09 UTC
+
+Tanker Swaps - Cloning? #FreeIran‌
+--- Operation EPIC FURY / Project FREEDOM ---
+
+A pair of KC-135 "Stratotanker" aircraft that had previously left the CENTCOM region (more than 2 weeks ago) back to the US arrived back at RAF Mildenhall (EGUN) this morning, and are now both airborne showing as RCH164 heading back to CENTCOM.
+
+They'll likely replace 2 airframes that left Tel Aviv Ben Gurion Airport (LLBG) early this morning and went to RAF Mildenhall.
+
+@MATA_osint
+
+فارسی
+
+تبادل تانکرها - کلونینگ؟ #FreeIran‌
+--- عملیات خشم حماسی (EPIC FURY) / پروژه آزادی (Project FREEDOM) ---
+
+یک جفت هواپیمای سوخت‌رسان KC-135 "استراتوتانکر" که پیش از این (بیش از ۲ هفته قبل) منطقه فرماندهی مرکزی ایالات متحده (سنتکام/CENTCOM) را به مقصد آمریکا ترک کرده بودند، امروز صبح به پایگاه نیروی هوایی سلطنتی میدهال (EGUN) بازگشتند و اکنون هر دو با شناسه RCH164 به صورت پروازی در حال بازگشت به سمت سنتکام هستند.
+
+آن‌ها احتمالاً جایگزین ۲ بدنه پروازی خواهند شد که اوایل صبح امروز فرودگاه بن گوریون تل‌آویو (LLBG) را ترک کرده و به پایگاه میدهال رفتند.
+
+@MATA_osint
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6092
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6092_1779209011.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Tue, 19 May 2026 16:35:43 UTC President Trump @POTUS: "The Highly Respected Attorney General of Texas, Ken Paxton, an America First Patriot, and someone who has always been extremely loyal to me and our AMAZING MAGA MOVEMENT, is running…
+</div>
+
+## Shin_Persian — post 6091
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 19 May 2026 16:35:43 UTC
+
+President Trump @POTUS:
+"The Highly Respected Attorney General of Texas, Ken Paxton, an America First Patriot, and someone who has always been extremely loyal to me and our AMAZING MAGA MOVEMENT, is running for the United States Senate, to represent a place I love and WON, BIG, three times, with 6.4 Million Votes in 2024 (The Most Votes in the History of the State, BY FAR)!I know Ken well, have seen him tested at the highest and most difficult levels, and he is a WINNER! Ken is a Strong Supporter of TERMINATING THE FILIBUSTER and, very importantly, THE SAVE AMERICA ACT, something which polls at 87%, including Dumocrats, and yet can’t seem to get approved. Perhaps Ken can help move these important elements of Government forward because with the Filibuster, as an example, the Democrats will terminate it on their First Day in Office, giving us two extra States, D.C. and Puerto Rico, and a greatly enlarged Supreme Court of the United States, probably going with their Dream Number of 21 Justices from the 9 that we currently have — And these new Justices will be Radical Left Lunatics! Two years ago, our Country was DEAD — Now we have the “HOTTEST” Country anywhere in the World — And I want to keep it that way. Ken Paxton will help me do that, MAKING AMERICA BIGGER, BETTER, AND STRONGER THAN EVER BEFORE!Ken is a true MAGA Warrior who has ALWAYS delivered for Texas, and will continue to do so in the United States Senate. He will tirelessly fight to continue the Great Growth of our Economy, Cut Taxes and Regulations (I just delivered the Largest Tax and Regulation Cuts in American History!), and Advance MADE IN THE U.S.A., Unleash American Energy DOMINANCE, Champion Texas Oil & Gas, Advocate for our Amazing Farmers and Ranchers, Promote School Choice, Keep our Border SECURE, Stop Migrant Crime, Support our Incredible Military/Veterans, Safeguard our Elections, and Protect our always under siege Second Amendment.John Cornyn is a good man, and I worked well with him, but he was not supportive of me when times were tough and, despite having the Most Successful Economy in the History of our Country during my First Term and, with all of the many other things that I accomplished (Secure Border, Military Dominance, Space Force, All Time High Stock Markets and 401(k)s, Record Job and Economic Growth, and so many other things that would be impossible to readily list!), which are considered by many to be legendary, John was very late in backing me in what turned out to be a Historic Run for the Republican Nomination, and then, the Presidency, itself, both of which were Landslide Victories and, more importantly, gave us the Country that we have today — THE GOLDEN AGE OF AMERICA (and when we finish up with Iran, which will not be allowed to have a Nuclear Weapon, you will see numbers that have never been generated by our Country before!), as opposed to the DISASTER of the previous Administration.Ken Paxton has gone through a lot, in many cases, very unfairly, but he is a Fighter, and knows how to WIN. Our Country needs Fighters, and also Loyalty to the Cause of Greatness. We can never allow what happened to the United States of America during the Corrupt Biden Administration, to happen again. In Texas alone, just look at the Border, with the Highest Level Criminals allowed to run through your State, totally unvetted and unchecked, through an Open Border Policy that was a Laughingstock all over the World. I came in, and fixed it, IMMEDIATELY. I will not permit those dark and dangerous days to come back! WE HAVE ALREADY MADE AMERICA GREAT AGAIN, BUT NOW, WE WANT TO MAKE OUR NATION BETTER THAN EVER BEFORE. Therefore, Ken Paxton has my Complete and Total Endorsement to be the next United States Senator from the Great State of Texas – KEN PAXTON WILL NEVER LET YOU DOWN!DONALD J. TRUMP, PRESIDENT OF THE UNITED STATES OF AMERICA"
+
+ترجمه فارسی در بخش نظرات
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 218144
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پاداش ۱۵ میلیون دلاری برای اطلاعات شبکه‌‌های مالی سپاه پاسداران
+
+▪️وزارت امور خارجه آمریکا روز سه‌شنبه ۲۹ اردیبهشت، با انتشار بیانیه‌ای اعلام کرد که در چارچوب برنامه «پاداش برای عدالت» این وزارتخانه «۱۵ میلیون دلار پاداش برای اطلاعات درباره شبکه‌‌های مالی سپاه پاسداران در نظر گرفته شده است.»
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/financial-reward-for-justice-against-irgc/8151668.html/?nocach=1
+</div>
+
+## DW_Farsi — post 124893
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124893_1779209012.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 آزادسازی بودجه اضطراری اروپا در مقابله با گرانی کود ناشی از جنگ ایران
+
+اتحادیه اروپا در صدد برآمده تا با گرانی سرسا‌م‌آور کود در کشورهای عضو که پیامد جنگ ایران است با آزادسازی بودجه‌های اضطراری خو د مقابله کند. این آزادسازی بر پایه برنامه‌های حمایتی این اتحادیه از بخش کشاورزی که قرار است سه‌شنبه ۱۹ مه رونمایی شود انجام خواهد گرفت.
+
+خبرگزاری فرانسه در گزارشی در این مورد نوشته که بروکسل برای کاهش تأثیر بحران خاورمیانه بر بخش کشاورزی تحت فشار است زیرا جهش قیمت کود، خطر افزایش هزینه‌های مواد غذایی را در سراسر این اتحادیه به همراه دارد.
+
+حدود یک‌سوم از کودهایی که از طریق دریا حمل می‌شوند، از طریق تنگه هرمز به بازار جهانی می‌رسند؛ آبراهی که در پی  جنگ آمریکا و اسرائیل علیه ایران، درعمل بسته شده است.
+
+این امر باعث افزایش قیمت‌ها شده و سازمان تجارت جهانی (WTO) هشدار داده که این محاصره، امنیت غذایی جهانی، به‌ویژه در آفریقا و جنوب آسیا را تهدید می‌کند.
+
+در اروپا، قیمت کودهای نیتروژنی که از گاز مشتق می‌شوند، از ۳۸۰ یورو در زمستان گذشته به حدود ۵۰۰ یورو (۵۸۱ دلار) در هر تن رسیده است.
+
+این وضعیت برای کشاورزانی که پیش از این با افزایش هزینه‌های ناشی از جنگ اوکراین دست‌وپنجه نرم می‌کردند، ضربه‌ای متوالی و مضاعف محسوب می‌شود.
+
+بروکسل تعرفه‌های سنگینی بر کودهای وارداتی از روسیه (به عنوان یک تولیدکننده بزرگ) وضع کرده و قصد دارد تا سال ۲۰۲۸ واردات از این کشور را به‌طور کامل متوقف کند تا به خزانه جنگی مسکو در نبرد علیه اوکراین ضربه بزند.
+
+به گفته فعالان این صنعت، تولیدکنندگان غلات که به مقادیر عظیمی کود نیاز دارند، به‌طور ویژه‌ای از این وضعیت آسیب دیده‌اند.
+
+@dw_farsi
+</div>
+
+## BBCPersian — post 281510
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوشنبه ۲۸ اردیبهشت در تجمع شبانه حامیان حکومت ایران، مراسم ازدواج ۵۰۰ زوج برگزار شد که واکنش‌هایی را به دنبال داشت. از جمله بعضی کاربران شبکه‌های اجتماعی از آن به عنوان «جنگی‌ترین عروسی تاریخ» یاد کردند. 
+
+مراسم عروسی زوج‌ها در میدان‌های اصلی تهران برگزار شد و بعد از آن عروس و دامادها سوار بر خودروهای نظامی مسلح به دوشکا در سطح خیابان‌های تهران رژه رفتند. 
+
+پیش از آن گزارشی در تلویزیون ایران از ازدواج «جانفدایان ایران» منتشر شد که زوج تازه ازدواج کرده مهمان برنامه اعلام کردند یک پهپاد شاهد به عنوان مهریه عروس در نظر گرفته شده است.
+
+تجمع‌های شبانه حامیان حکومت، انتقادهای زیادی را به دنبال داشته است. از جمله استفاده از کودکان برای اهداف ایدئولوژیک. در مراسم ازدواج برگزار شده کودکان نقش پررنگی در تبلیغ این مراسم داشتند. در شب‌های قبل هم تصاویری از آموزش کار با اسلحه به کودکان منتشر شد. در جریان جنگ آمریکا و اسرائیل با ایران، استفاده از کودکان در ایست و بازرسی‌ها واکنش‌های زیادی را به دنبال داشت. 
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 389763
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389763_1779209012.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادامه آموزش کار با اسلحه در صداوسیما:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389762
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389762_1779209014.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجتبی واحدی هم یه حالی به بهزاد بی بیضه داد
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389761
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389761_1779209016.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یارو لیترالی سواد خوندن آنچنانی نداشت، تصمیم گرفت فال بگیره، و همونجا بدون کوچیک‌ترین تپقی فالش رو خوند.
+«خوش باش که ظالم نبرد راه به منزل»
+
+بعد اون فال اول خودشو بگا داد؛ بعدشم محور مقاوت یک روز خوش ندید که ندید.
+
+پ‌ن: عکس بالگردیه که باهاش سقوط کرد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389760
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/389760" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ اپلیکیشن اندروید سایت جهانی دربی بت
+
+💰اولین سایت جهانی با امکان شارژ و برداشت ریالی(کارت به کارت)
+
+🔗 برای ورود فیلترشکن روی کشور مناسب قرار دهید مانند فنلاند و المان و....
+
+😀Telegram Channel
+👇
+https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389759
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389759_1779209017.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## alonews — post 121145
+
+<div align="center">
+  <a href="telegram/content/alonews_121145_1779209018.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اسرائیل هیوم: نتانیاهو به دلایل امنیتی درخواست کرده است که فردا در دادگاهش برگزار نشود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121144
+
+<div align="center">
+  <a href="telegram/content/alonews_121144_1779209018.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای کانال ۱۲ اسرائیل: ارزیابی‌های اسرائیل نشان می‌دهد که ترامپ تصمیم حمله به ایران را گرفته است و اجرای آن فقط مربوط به مسئله زمان است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121143
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرمانده سنتکام : چند تا ناوشکن آمریکایی اخیراً از تنگه هرمز عبور کردن
+
+
+🔴 ایران از هر نظر خیلی ضعیف‌تر از قبل شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 20:03
 ---
 
