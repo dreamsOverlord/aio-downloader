@@ -7,6 +7,57 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 19:23
+---
+
+## kianmeli1 — post 87533
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87533_1779378785.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت دفاع روسیه تصاویری از رزمایش نیروهای هسته‌ای خود منتشر کرد.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87532
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87532_1779378786.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سپاه پاسداران تهدید کرده است در صورت جنگ مجدد٫ بحرین را تسخیر خواهد کرد و تبدیل به پایگاه نظامی میکند
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 338265
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338265_1779378787.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در حالی‌که مقامات آمریکایی نسبت به امضای توافق با جمهوری اسلامی خوش‌بینی هستند، آسوشیتدپرس نوشته احمد وحیدی، فرمانده سپاه پاسداران، به بازیگر اصلی در شکل‌دهی به موضع سخت جمهوری اسلامی در مذاکرات برای پایان جنگ بدل شده است.
+جزییات بیشتر با سمیرا قرایی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14614
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢مارکو روبیو 🔹اجرای سیستم اخذ عوارض در تنگه هرمز از سوی جمهوری اسلامی، دستیابی به توافق دیپلماتیک را غیرممکن می‌کند. 🔹او افزود: «در مذاکرات مقداری پیشرفت داشته‌ایم، اما روشن است با سیستمی روبه‌رو هستیم که خود تا حدی دچار شکاف است؛ یعنی ساختار حاکم در ایران.»…
+</div>
+
+## IranianMinds — post 20497
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20497_1779378788.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 19:13
 ---
 
