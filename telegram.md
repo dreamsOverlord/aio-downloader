@@ -7,6 +7,63 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 04:02
+---
+
+## VahidOOnLine — post 241253
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241253_1779323559.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فرماندهی مرکزی ایالات متحده (سنتکام) بامداد پنجشنبه ۳۱ اردیبهشت‌ماه در شبکه اجتماعی اکس تصاویری منتشر کرد که یک فروند بمب‌افکن بی-۱بی لنسر نیروی هوایی آمریکا را در حال سوخت‌گیری هوایی بر فراز آب‌های منطقه‌ای خاورمیانه نشان می‌دهد.
+
+بر اساس توضیح سنتکام، این سوخت‌گیری در جریان یک پرواز آموزشی و با استفاده از هواپیمای سوخت‌رسان کی‌سی-۱۳۵ استراتوتنکر انجام شده است.
+
+در تصاویر منتشرشده، بمب‌افکن راهبردی آمریکا هنگام اتصال به هواپیمای سوخت‌رسان در میانه پرواز دیده می‌شود؛ اقدامی که بخشی از حفظ آمادگی عملیاتی نیروهای آمریکایی در منطقه عنوان شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342032
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342032_1779323560.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Vanessa Trump announced she has been diagnosed with breast cancer and recently underwent a procedure as she starts treatment and recovery.
+
+"I am staying focused and hopeful while surrounded by the love and support of my family, my kids, and those closest to me," Trump wrote.
+
+The update quickly prompted an outpouring of support from other members of the Trump family and supporters.
+</div>
+
+## FoxNewsTwitter — post 342031
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+Read more:
+</div>
+
+## FoxNewsTwitter — post 342030
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342030_1779323561.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"I'm Hunter Biden. You've never actually heard from me."
+
+A newly active "Hunter Biden" X account is sparking a firestorm as politicians and commentators relentlessly mock the first post.
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 03:52
 ---
 
