@@ -7,6 +7,167 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 16:02
+---
+
+## VahidOOnLine — post 241324
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241324_1779366766.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مدیر آژانس بین‌المللی انرژی امروز پنجشنبه بدون ارائه جزئیات بیشتر گفت آغاز اوج تقاضای سوخت در تابستان، همراه با نبود صادرات جدید نفت از خاورمیانه و کاهش ذخایر، می‌تواند بازار نفت را در ماه‌های ژوئیه و اوت وارد «منطقه قرمز» کند.
+فاتح بیرول در سخنرانی خود در چتم هاوس لندن گفت جهان با مازاد نفت وارد بحران عرضه ناشی از جنگ ایران شده بود؛ موضوعی که به جذب شوک اولیه کمک کرد، اما اکنون ذخایر در حال کاهش هستند.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342037
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342037_1779366767.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+An illegal immigrant trucker from India, who was released by the Biden administration, has been arrested for allegedly causing a deadly multi-vehicle crash in California.
+
+DHS says that Manvir Singh killed two people in the crash and attempted to flee the scene.
+
+Officials say Singh illegally crossed the border in 2023 and was later released into the U.S. by the Biden administration before obtaining a commercial driving job.
+</div>
+
+## pm_afshaa — post 91159
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91159_1779366767.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سازمان انرژی بین‌المللی:
+بازارهای نفت ممکنه در ماه‌های ژوئیه و آگوست به منطقه خطر برسه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87530
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87530_1779366768.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نهادهای امنیتی اروپا با بیانه ای رسمی، برای دریافت اطلاعات درباره فعالیت های مرتبط با «حرکة اصحاب الیمین الاسلامیة» پاداش مالی تعیین کردند
+
+
+طبق گزارش ها٫ این گروه به دلیل ارتباط با اقدامات تروریستی سپاه پاسداران شبکه سازی پنهان و فعالیت های سازمان یافته در چند کشور اروپایی تحت تحقیقات ویژه قرار گرفته است.
+
+منابع امنیتی اعلام کرده اند هرگونه اطلاعات درباره اعضا٫ کانال های ارتباطی٫ منابع مالی٫ فعالیت های رسانه ای یا ارتباطات وابسته به این جریان میتواند در روند شناسایی و مقابله مؤثر باشد
+
+در این بیانیه تأکید شده افرادی که اطلاعات معتبر ارائه دهند٫ علاوه بر حفظ کامل هویت٫ مشمول دریافت «پاداش ویژه» دریافت خواهند کرد.
+
+-از شهروندان خواسته شده هرگونه سرنخ یا اطلاعات مرتبط را از طریق مسیرهای امن و محرمانه ارسال کنند.
+https://t.me/kianmeli1
+</div>
+
+## ManotoTV — post 105717
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105717_1779366768.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مدیر آژانس بین‌المللی انرژی امروز پنجشنبه بدون ارائه جزئیات بیشتر گفت آغاز اوج تقاضای سوخت در تابستان، همراه با نبود صادرات جدید نفت از خاورمیانه و کاهش ذخایر، می‌تواند بازار نفت را در ماه‌های ژوئیه و اوت وارد «منطقه قرمز» کند.
+فاتح بیرول در سخنرانی خود در چتم هاوس لندن گفت جهان با مازاد نفت وارد بحران عرضه ناشی از جنگ ایران شده بود؛ موضوعی که به جذب شوک اولیه کمک کرد، اما اکنون ذخایر در حال کاهش هستند.
+</div>
+
+## BBCPersian — post 281699
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سرانجام متهمان پرونده اکباتان؛ سرهایی که پای دار رفت اما بالای دار نرفت
+
+قوه قضائیه ایران روز پنجشنبه (۲۱ اردیبهشت) یک روز بعد از صدور حکم متهمان «پرونده اکباتان»، توضیحاتی در این مورد منتشر کرد. دیروز احکام شش متهم در پرونده موسوم به «اکباتان» صادر شد که براساس آن سه متهم محکوم در ارتباط با کشته‌شدن آرمان علی‌وردی، طلبه بسیجی به پنج سال حبس و دیه و سه متهم دیگر از اتهامات تبرئه شدند.
+
+https://bbc.in/43idNYO
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 389879
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389879_1779366769.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فکت
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389877
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سر تیت‌س خبرها:
+
+گویا مجری اینترنشنال یادش رفته سوتین ببنده و نوک سینه‌هاش معلومه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389876
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389876_1779366769.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه براتون سواله چرا سادگی رو بورس هستش:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389875
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایلان ماسک:
+انسان‌ها به زودی تراشه‌های سایبرنتیک کاشتنی خواهند داشت که قدرت‌های خداگونه را ممکن می‌سازند
+این فناوری می‌تونه انسان کور رو بینا کنه ، افراد فلج دوباره بتونن راه برن و ناشنوا ها هم بتونن بشنوند
+
+ایلان این تراشه‌ها را به عنوان «معجزاتی در سطح عیسی» توصیف میکنه.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## manototv — post 105717
+
+<div align="center">
+  <a href="telegram/content/manototv_105717_1779366770.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مدیر آژانس بین‌المللی انرژی امروز پنجشنبه بدون ارائه جزئیات بیشتر گفت آغاز اوج تقاضای سوخت در تابستان، همراه با نبود صادرات جدید نفت از خاورمیانه و کاهش ذخایر، می‌تواند بازار نفت را در ماه‌های ژوئیه و اوت وارد «منطقه قرمز» کند.
+فاتح بیرول در سخنرانی خود در چتم هاوس لندن گفت جهان با مازاد نفت وارد بحران عرضه ناشی از جنگ ایران شده بود؛ موضوعی که به جذب شوک اولیه کمک کرد، اما اکنون ذخایر در حال کاهش هستند.
+</div>
+
+## alonews — post 121543
+
+<div align="center">
+  <a href="telegram/content/alonews_121543_1779366771.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امارات از پیشرفت 50 درصدی در پروژه ساخت «خط لوله دورزننده تنگه هرمز» خبر داد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 15:52
 ---
 
