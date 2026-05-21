@@ -1,4 +1,4 @@
-<div dir="rtl" markdown="1">
+<div dir="center" markdown="1">
 
 # 📖 راهنمای جامع AIO-Downloader
 
