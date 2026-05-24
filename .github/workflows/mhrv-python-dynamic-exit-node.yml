@@ -16,7 +16,7 @@ jobs:
     steps:
       - uses: actions/checkout@v4
 
-            - name: "Set up WireGuard VPN (if enabled)"
+      - name: "Set up WireGuard VPN (if enabled)"
         id: vpn
         run: |
           VPN_ENABLED="${{ inputs.vpn_enabled }}"
