@@ -7,6 +7,295 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 20:33
+---
+
+## VahidOOnLine — post 242147
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242147_1779728618.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کلودیا شینباوم، رییس‌جمهوری مکزیک، دوشنبه اعلام کرد که دولت او موافقت کرده به تیم ملی فوتبال ایران اجازه دهد در طول رقابت‌های جام جهانی در مکزیک اقامت داشته باشد.
+
+او افزود که ایالات متحده تمایلی به میزبانی این تیم نداشته است.
+
+شینباوم گفت که فدراسیون بین‌المللی فوتبال (فیفا) پس از آن‌که آمریکا اعلام کرد نمی‌خواهد تیم ایران در طول مسابقات در خاک این کشور مستقر باشد، با دولت مکزیک تماس گرفته است.
+
+ایران قرار است هر سه بازی مرحله گروهی خود را در آمریکا برگزار کند.
+
+شینباوم در یک نشست خبری گفت: «ما هیچ دلیلی برای محروم کردن آنها از امکان اقامت در مکزیک نمی‌بینیم.»
+
+کاخ سفید و وزارت خارجه آمریکا هنوز در این زمینه اظهار نظر نکرده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12441
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای الحدث به نقل از منابع: ایران آماده‌ست تا اورانیوم با غنای بالا رو به چین انتقال بده ! @withyashar
+</div>
+
+## WithYashar — post 12440
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق گزارش تایید نشده از شاهدان عینی که به دستمان رسیده است از وقوع یک درگیری نامشخص در محدوده میدان انقلاب تهران در ساعتی قبل خبر می‌دهند.
+
+بر اساس این ادعاها، گفته می‌شود منطقه تحت کنترل نیروهای امنیتی قرار گرفته و رفت‌وآمد در برخی مسیرها محدود شده است.
+
+همچنین طبق گفته شاهدان عینی تعداد زیادی جنازه که از ظواهر آنها مشخص بود نیروهای حشد الشعبی بوده اند روی زمین ریخته بود
+
+به محض وصول هر گونه اخبار تکمیلی به اطلاع شما عزیزان خواهد رسید ‌
+@withyashar
+</div>
+
+## WithYashar — post 12439
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نورالدین الدغیر، خبرنگار الجزیره در تهران:
+به نظر می‌رسد گره مذاکرات ایران و آمریکا در حال باز شدن است و ابتکار قطر نقش اساسی در حل اختلافات داشته است.
+
+به گفته او، دوحه یک میانجی واقعی بوده، نه فقط کمکی در میانجی‌گری.
+@withyashar
+</div>
+
+## WithYashar — post 12438
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+العربیه: پیش‌نویس توافق میان آمریکا و ایران، برقراری آتش‌بس جامع در تمامی جبهه‌ها، از جمله لبنان را تضمین می‌کند.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342230
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342230_1779728618.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Memorial Day tribute remembers America’s fallen at the Vietnam Veterans Memorial https://twitter.com/i/broadcasts/1mxPaaagbLqKN
+</div>
+
+## FoxNewsTwitter — post 342229
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342229_1779728619.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: Vice President JD Vance delivers a powerful Memorial Day message, calling on Americans to live as the "very best version" of themselves to honor the ultimate sacrifice of the nation's fallen heroes.
+
+Vance reminded the nation that every cherished moment with loved ones was paid for by total strangers who laid down their lives to protect American freedom.
+
+"On this Memorial Day, I just ask two things of all of our fellow Americans. The first is that we be the very best version of ourselves in honor of those who gave everything that this nation might be worthy"
+
+"And that second, we always remember that every moment that we're able to enjoy with our loved ones, everything that gives our life and our nation meaning and purpose was given to us, often by total strangers who laid down their lives that this might be the best nation in the history of the world."
+</div>
+
+## FoxNewsTwitter — post 342228
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342228_1779728620.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: VP Vance pays tribute to America's fallen heroes:
+
+"Today is for those veterans who put on the uniform, who went overseas and who never came home."
+
+"When I think about the debt that we owe them, I think about all the things that they gave, which can't be measured in dollars or in the things of this world..."
+
+"They traded every moment from the moment where they gave their lives to the moment where they would ultimately meet their natural end. Every single one of those moments, they gave up that the United States might remain the freest and best country in the entire world."
+</div>
+
+## FoxNewsTwitter — post 342227
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342227_1779728622.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: Army Chaplain Lt. Col. Kevin Trimble delivers a powerful Memorial Day prayer at Arlington National Cemetery honoring America’s fallen heroes:
+
+"May we cherish the freedoms they have preserved, defend the justice they have sought and extend compassion they carried in their hearts. Comfort the families who still feel the ache of absence. May they know their loved ones are not forgotten, that their names are spoken with reverence, and their legacy lives on in the soul of our nation."
+
+"As we stand among the markers of the fallen, may we be reminded that liberty is never free. It is fought and paid for, in courage, in service and in love. God, we pray for peace that one day swords may be beaten into plowshares. And no mother need weep for a child lost to war until that day. Give us strength to be faithful stewards of the freedom entrusted to us. In your holy name we remember, we honor, and we render thanksgiving. Amen."
+</div>
+
+## FoxNewsTwitter — post 342226
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342226_1779728624.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: General Dan Caine honors America's fallen heroes, praising the unbroken line of courage from Valley Forge to recent military action like Operation Epic Fury.
+
+"Across the centuries, the character, courage, and commitment of the American warfighter has never wavered. And it never will.”
+
+“It's that same war fighting spirit we recently saw in Operation Epic Fury, and we remember and honor those who made the ultimate sacrifice, adding their names to the story of American heroism."
+</div>
+
+## FoxNewsTwitter — post 342225
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342225_1779728626.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH: The U.S. Army Band 'Pershing's Own' plays the Star Spangled Banner in a Memorial Day tribute at Arlington National Cemetery.
+</div>
+
+## DEJradio — post 4952
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4952_1779728628.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 الحدث به نقل از منابع آگاه گزارش داد جمهوری اسلامی شرط انتقال اورانیوم با غنای بالا به چین را مطرح کرده است.
+در این گزارش آمده، ایران آمادگی دارد اورانیوم با غنای بالای خود را از کشور خارج کند، اما پیش از نهایی شدن هرگونه توافق با آمریکا، به دنبال دریافت تضمین‌هایی از چین است.
+پیش از این ولادیمیر پوتین نیز پیشنهاد داده بود اورانیوم‌های جمهوری اسلامی به روسیه منتقل شود.
+
+#اورانیوم #چین #جمهوری_اسلامی
+@DEJradio
+</div>
+
+## kianmeli1 — post 87661
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87661_1779728629.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف و عراقچی در دوحه
+ایران می‌گوید هیچ عوارضی برای تنگه هرمز وجود ندارد، اما شاید «هزینه زیست‌محیطی» داشته باشد
+
+ایران به دنبال تضمین‌های چین است، ممکن است اورانیوم را به آنجا منتقل کند: عربستان
+ترامپ این توافق را به توافق آبراهام مرتبط دانست
+عربستان توافق آبراهام را به مسیر برگشت‌ناپذیر برای تشکیل کشور فلسطین مرتبط دانست
+
+به نظر می‌رسد پیوند توافق‌نامه ابراهیم ناشی از تمایل به خروج آبرومندانه ترامپ و پیروزی ژئوپلیتیکی برای اسرائیل باشد، اما بعید است که این امر محقق شود. ترامپ می‌تواند روی کاغذ تعهدی از عربستان سعودی برای عادی‌سازی نهایی روابط به دست آورد، اما این پادشاهی در طول سال گذشته از این هدف فاصله گرفته و به ترکیه/قطر/پاکستان نزدیک‌تر شده است.
+
+در حال حاضر، تمرکز هرگونه توافق اولیه بر حقوق ترانزیت هرمز و انتقال اورانیوم غنی‌شده با غنای بالا متمرکز است. چین به عنوان ضامن از دیدگاه ایران منطقی است، اما هنوز مشخص نیست که آیا پکن این نقش را خواهد پذیرفت و تا این حد در منطقه خاورمیانه نفوذ خواهد کرد یا خیر.
+https://t.me/kianmeli1
+</div>
+
+## DW_Farsi — post 125139
+
+<div align="center">
+  <a href="telegram/content/DW_Farsi_125139_1779728629.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 شکست پروژه قطار شناور آلمان
+
+"ترانس‌راپید"، پروژه قطار شناور مغناطیسی آلمان، قرار بود آینده حمل‌ونقل را تغییر دهد.
+
+قطاری فوق‌سریع که بدون چرخ و با فناوری مغناطیسی حرکت می‌کرد. اما حالا مسیر آزمایشی این قطار زنگ زده و متروکه شده است.
+
+چه شد که این پروژه شکست خورد؟
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 14957
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم:خبر رسانه سعودی درباره جزئیات تفاهم احتمالی کذب است
+
+🔹الحدث، رسانه وابسته به سعودی نوشت که «منابع ایرانی به او گفته‌اند که ایران آماده است اورانیوم غنی شده سطح بالا را از کشور خارج کند»!
+
+🔹بررسی‌ها نشان می‌دهد که رسانه سعودی نیز همچون بسیاری از اخبار او درباره جزئیات مذاکرات کذب بوده و در راستای عملیات روانی آمریکایی‌هاست.
+
+🔹در متن تفاهم‌نامه‌ای که تا امروز وجود دارد، هیچ جمله‌ای مبنی بر اعلام آمادگی برای خروج مواد هسته‌ای وجود ندارد و اساساً ایران در این تفاهم نامه هیچ تعهدی درباره اقدام هسته‌ای نداده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157546
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قاضی صلواتی به چهار متهم «اکباتان» حکم اعدام داد؛ یک معترض دیگر اعدام شد
+
+🔸در ادامه تشدید صدور و اجرای حکم اعدام در ایران، یک روز پس از صدور حکم اعدام برای چهار تن از معترضان «پرونده شهرک اکباتان»، یک معترض دیگر از اعتراضات دی‌ماه سال گذشته اعدام شد.
+خبرگزاری میزان، وابسته به قوه قضاییه، صبح روز دوشنبه، چهارم خردادماه، از اعدام عباس اکبری، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴ در اصفهان، خبر داد.
+
+🔸در گزارش میزان این معترض جوان بدون اشاره به سن و حرفه‌اش با نام «عباس اکبری فیض‌آبادی» به عنوان «یکی از لیدرهای مسلح» در اعتراضات شهرستان نائین معرفی شده است.
+
+🔸بر اساس گزارش این خبرگزاری حکومتی، اکبری «نقش مهمی در حمله به فرمانداری شهرستان و مراکز تأمین امنیت و همچنین مراکز خدماتی» داشته است.
+
+🔸میزان اتهامات عباس اکبری را «محاربه، تخریب عمدی اموال عمومی به قصد مقابله با نظام و اخلال در نظم و امنیت جامعه، اجتماع و تبانی برای ارتکاب جرم علیه امنیت داخلی» نوشته و مدعی شده که او با کلت کمری جنگی اقدام به تیراندازی در خیابان کرده است.
+
+🔸 گزارش کامل را در وب‌سایت رادیوفردا بخوانید.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 157545
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طالبان با تشدید سرکوب رسانه‌ای، سه ایستگاه‌ رادیویی دیگر را تعطیل کرد
+
+🔸طالبان افغانستان در تازه‌ترین اقدامات سرکوبگرانهٔ خود که از زمان به قدرت رسیدن دوباره این گروه در سال ۲۰۲۱، صحنه رسانه‌ای کشور را تا حد زیادی تضعیف کرده است، سه ایستگاه رادیویی محلی را تعطیل کرد.
+
+🔸ریاست اطلاعات و فرهنگ طالبان در قندهار روز سوم خرداد در اعلامیه‌ای گفت که رادیوهای «تحسین القرآن»، «سنگا» و «زما زیور» به دلیل عدم پرداخت مالیات، عدم دریافت پروانه و پخش با کیفیت پایین تعطیل شده‌اند.
+
+🔸در این اعلامیه همچنین به دو رادیوی دیگر به نام‌های «ملت غژ» و «ورانگی» هشدار داده شده است که اسناد خود را تکمیل کرده و فعالیت‌هایشان را قانونی سازند.
+
+🔸حامد عبیدی، رئیس سازمان حمایت از رسانه‌ها، در واکنش به این اقدام به بخش افغانستان رادیو اروپای آزاد/ رادیو آزادی گفت که حکومت طالبان به آزادی بیان متعهد نیست و تلاش می‌کند برای کنترل افکار عمومی از هر ابزار ممکن استفاده کند.
+
+🔸عبیدی گفت که دلایل ارائه‌شده برای تعطیلی ایستگاه‌ها تنها بهانه‌ای برای سرکوب افکار عمومی است.
+
+🔸هفته گذشته، وقتی ایستگاه محلی دیگری، رادیو بامیان، به‌دلیل عدم تمدید مجوزش تعطیل شد، منبعی در این رادیو به رادیو آزادی گفت که طالبان در واقع از این کار جلوگیری کرده‌اند.
+
+🔸افغانستان در جدیدترین شاخص جهان آزادی مطبوعات گزارشگران بدون مرز که ماه گذشته منتشر شد، در رتبه ۱۷۵ قرار دارد. تنها عربستان سعودی، ایران، چین، کرهٔ شمالی و اریتره امتیاز پایین‌تری داشتند.
+
+🔸گزارشگران بدون مرز می‌گوید ۴۳ درصد از رسانه‌ها در افغانستان از سال ۲۰۲۱ تعطیل شده‌اند که نمونه‌هایی از خاموش شدن رسانه‌های مستقل با هدف قرار دادن زنان خبرنگار است.
+
+🔸 گزارش کامل را در وب‌سایت رادیوفردا بخوانید.
+
+@RadioFarda
+</div>
+
+## alonews — post 122620
+
+<div align="center">
+  <a href="telegram/content/alonews_122620_1779728631.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای العربیه:
+پیش‌نویس توافق تأکید می‌کند که کاهش تحریم‌های نفت ایران مشروط به اجرای تعهدات آن است.
+
+
+🔴پیش‌نویس توافق آمریکا و ایران بر دوره ۳۰ روزه برای بازگشت کشتیرانی در تنگه هرمز تأکید دارد.
+
+
+🔴پیش‌نویس توافق آمریکا و ایران بر دوره ۶۰ روزه برای مذاکرات هسته‌ای تأکید دارد.
+
+
+🔴توافق بر آزادسازی بخشی از دارایی‌های مسدود شده ایران طبق سازوکاری مشخص تأکید دارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 20:23
 ---
 
