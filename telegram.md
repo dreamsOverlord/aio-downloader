@@ -7,6 +7,273 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 00:52
+---
+
+## VahidOOnLine — post 242187
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242187_1779744168.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تسنیم، خبرگزاری وابسته به سپاه، بامداد سه‌شنبه، پنجم خردادماه، درباره آخرین وضعیت مذاکرات هیات ایرانی به نقل از «یک منبع آگاه» گزارش داد: «موضوع آزادسازی دارایی بلوکه شده ایران در حال پیگیری است». براساس این گزارش، سفر محمدباقر قالیباف، رئیس مجلس شورای اسلامی، به قطر با همراهی عباس عراقچی، وزیر خارجه جمهوری اسلامی و رئیس کل بانک مرکزی، در جهت آزادسازی بخشی از پولهای بلوکه شده در مرحله اول اجرایی شدن یادداشت تفاهم احتمالی با واشنگتن است. تسنیم نوشت که چون جمهوری اسلامی به آمریکایی‌ها بی‌اعتماد است و می‌خواهد نتایج قطعی را حاصل و انتفاع ایجاد کند، اصرار دارد در این فرایند حتما بخشی از پول‌های مسدود شده آزاد شود. این «منبع مطلع» به تسنیم گفت که در این سفر «پیشرفت‌هایی حاصل شده و گام‌های رو به جلو برداشته شده است».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12479
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با شما : فکر کنم ترور بابل درست باشه بخشی از خیابونو دو طرفشو بسته بودن کلا نه اجازه ی ورود میدادن نه خروج @withyashar
+</div>
+
+## WithYashar — post 12478
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میدل ایست : دو قایق تندرو نیروی دریایی سپاه در خلیج فارس هدف جنگنده‌های آمریکایی قرار گرفتن و چهار سرباز کشته شدن @withyashar
+</div>
+
+## WithYashar — post 12477
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میدل ایست : دو قایق تندرو نیروی دریایی سپاه در خلیج فارس هدف جنگنده‌های آمریکایی قرار گرفتن و چهار سرباز کشته شدن
+@withyashar
+</div>
+
+## pm_afshaa — post 91498
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91498_1779744168.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فارس: در خلیج فارس حوالی سیریک و جاسک هم صداهای انفجار شنیده شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91497
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91497_1779744169.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴این وسط تسنیم گفته:
+در سفر قالیباف و عراقچی به قطر، پیشرفت‌هایی حاصل شده و گام‌های رو به جلو برداشته شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91496
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه شب خبر از توافقه یه شب جنگ
+</div>
+
+## kianmeli1 — post 87666
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87666_1779744169.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پایین صفحه نوشته شده فروش فیلترشکن جعلیه و کلاهبرداری
+
+خود تلگرام تبلیغ میکنه و مراقب باشید نخرید
+https://t.me/kianmeli1
+</div>
+
+## Shin_Persian — post 6226
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6226_1779744170.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Mon, 25 May 2026 21:12:23 UTC No, Tabnak News did not report anything about "Bandar Abbas airport being hit". But yes, the sound was heard from east of the city. #Hormogzan Province, #Iran ↩️ توییت نقل‌قول شده — برای…
+</div>
+
+## Shin_Persian — post 6225
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Mon, 25 May 2026 21:12:23 UTC
+
+No, Tabnak News did not report anything about "Bandar Abbas airport being hit".
+But yes, the sound was heard from east of the city.
+#Hormogzan Province, #Iran
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+خیر، خبرگزاری تابناک هیچ خبری مبنی بر «هدف قرار گرفتن فرودگاه بندرعباس» منتشر نکرده است.
+اما بله، صدا از شرق شهر شنیده شده است.
+#Hormogzan Province, #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6224
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 25 May 2026 21:12:23 UTC
+
+No, Tabnak News did not report anything about "Bandar Abbas airport being hit".
+But yes, the sound was heard from east of the city.
+#Hormogzan Province, #Iran
+
+فارسی
+
+خیر، خبرگزارى تابناک هیچ خبری مبنی بر «مورد اصابت قرار گرفتن فرودگاه بندرعباس» گزارش نکرده است.
+اما بله، صدا در شرق شهر شنیده شده است.
+#Hormogzan Province, #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 218654
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️روز دوشنبه ۴ خرداد جی دی ونس، معاون رئیس جمهوری آمریکا، به همراه پرزیدنت ترامپ و شماری از مقامات بلندپایه آمریکا در مراسم «روز یادبود» در آرامستان ملی آرلینگتون در نزدیکی واشنگتن شرکت کرد. این مراسم به طور زنده و با ترجمه همزمان پژواک کیومرثی از صدای آمریکا پخش شد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218653
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️روز دوشنبه ۴ خرداد پیت هگست، وزیر جنگ آمریکا، به همراه پرزیدنت ترامپ و شماری از مقامات بلندپایه آمریکا در مراسم «روز یادبود» در آرامستان ملی آرلینگتون در نزدیکی واشنگتن شرکت کرد. این مراسم به طور زنده و با ترجمه همزمان پژواک کیومرثی از صدای آمریکا پخش شد.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15005
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15005_1779744170.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹صدای انفجار در بابلسر
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15004
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15004_1779744171.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+(غیر رسمی)دو قایق تندرو نیروی دریایی سپاه توسط جنگنده‌های آمریکایی در خلیج فارس هدف قرار گرفتند و چهار نیرو کشته شدند.
+این خبر تایید یا تکذیب نمی‌شود .
+
+👩‍💻@PhantomDirective
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20766
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوباره صدا اومد بندرعباس؟
+</div>
+
+## IranianMinds — post 20765
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حمید رسایی نماینده حرومی مجلس : اینکه بخوان اینترنت بین الملل رو وصل کنن کاملا غیرقانونیه و‌ پزشکیان اصلا نمیتونه همچین کاریو انجام بده و تواناییش رو نداره ، و اینکار فقط برای حواس پرتیه @IranianMinds
+</div>
+
+## Dirty_Kids — post 390186
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ظاهرا حملات آمریکایی به قایق های سپاه کشته و زخمی زیادی دارد/
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390185
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرگزاری فارس :
+دقایقی پیش مردم تو بندرعباس و حوالی خلیج فارس صدای چند انفجار شنیدن؛ هنوز محل دقیق و منشأ این صداها مشخص نیست.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 122679
+
+<div align="center">
+  <a href="telegram/content/alonews_122679_1779744171.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق برخی گزارشات دو قایق تندرو سپاه هدف حمله جنگنده آمریکایی قرار گرفتن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122678
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با پولایی که کانفیگ فروشا این مدت در آوردن بعید نیست موشک خریده باشن کار خودشون باشه
+
+[@AloTweet]
+</div>
+
+## alonews — post 122675
+
+<div align="center">
+  <a href="telegram/content/alonews_122675_1779744171.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اولین فیلم های تایید نشده از پهباد در قشم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122674
+
+<div align="center">
+  <a href="telegram/content/alonews_122674_1779744172.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈در حال حاضر یک فروند هواپیمای سوخت‌رسان KC-46A پگاسوس نیروی هوایی ایالات متحده بر فراز خلیج عمان در حال پرواز است!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 00:43
 ---
 
