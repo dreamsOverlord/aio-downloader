@@ -7,6 +7,306 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 16:02
+---
+
+## WithYashar — post 12416
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث : «مذاکرات با جمهوری اسلامی ایران به‌خوبی در حال پیشرفت است! یا این توافق، توافقی بزرگ برای همه خواهد بود، یا اصلاً توافقی در کار نخواهد بود — وگرنه بازگشت به میدان نبرد و تیراندازی آغاز می‌شود، آن هم بزرگ‌تر و قدرتمندتر از همیشه — و هیچ‌کس چنین چیزی را نمی‌خواهد!
+
+در جریان گفت‌وگوهایم در روز شنبه با محمد بن سلمان آل سعود، ولیعهد عربستان سعودی، محمد بن زاید آل نهیان، رئیس کشور امارات متحده عربی، شیخ تمیم بن حمد آل ثانی، امیر قطر، محمد بن عبدالرحمن بن جاسم بن جبر آل ثانی، نخست‌وزیر قطر، علی الثوادی، وزیر قطری، سید عاصم منیر احمد شاه، فرمانده ارتش پاکستان، رجب طیب اردوغان، رئیس‌جمهور ترکیه، عبدالفتاح السیسی، رئیس‌جمهور مصر، ملک عبدالله دوم، پادشاه اردن، و حمد بن عیسی آل خلیفه، پادشاه بحرین، اعلام کردم که پس از تمام تلاش‌هایی که ایالات متحده برای کنار هم قرار دادن این پازل بسیار پیچیده انجام داده، لازم است که همه این کشورها، حداقل به‌صورت هم‌زمان، به پیمان ابراهیم بپیوندند.
+@withyashar
+کشورهایی که درباره آن‌ها صحبت شد عبارت‌اند از: عربستان سعودی، امارات متحده عربی (که هم‌اکنون عضو است)، قطر، پاکستان، ترکیه، مصر، اردن و بحرین (که هم‌اکنون عضو است). ممکن است یک یا دو کشور دلیلی برای انجام ندادن این کار داشته باشند و این پذیرفته خواهد شد، اما بیشتر آن‌ها باید آماده، مایل و قادر باشند تا این توافق با ایران را به رویدادی تاریخی‌تر از آنچه در غیر این صورت می‌بود تبدیل کنند.
+
+پیمان‌های ابراهیم برای کشورهای عضو آن — یعنی امارات متحده عربی، بحرین، مراکش، سودان و قزاقستان — یک جهش عظیم مالی، اقتصادی و اجتماعی به همراه داشته‌اند، حتی در این دوران جنگ و درگیری؛ تا جایی که هیچ‌یک از اعضای فعلی حتی صحبت از خروج یا توقف موقت هم نکرده‌اند.
+
+دلیلش این است که پیمان‌های ابراهیم برای آن‌ها فوق‌العاده بوده و برای همه نیز حتی بهتر خواهد بود، و برای نخستین بار در پنج هزار سال گذشته، قدرت، توان و صلح واقعی را به خاورمیانه خواهد آورد.
+
+این سند، همانند هیچ توافق دیگری که تاکنون در جهان امضا شده، مورد احترام قرار خواهد گرفت. سطح اهمیت و اعتبار آن بی‌همتا خواهد بود!
+@withyashar
+این روند باید با امضای فوری عربستان سعودی و قطر آغاز شود و دیگران نیز باید به‌دنبال آن حرکت کنند. اگر این کار را نکنند، نباید بخشی از این توافق باشند، زیرا این نشان‌دهنده نیت بد است.
+
+در گفت‌وگو با بسیاری از رهبران بزرگی که نام برده شد، آن‌ها اعلام کردند که به‌محض امضای سند ما، از حضور جمهوری اسلامی ایران در پیمان‌های ابراهیم استقبال خواهند کرد. واو، این واقعاً چیزی ویژه خواهد بود!
+
+این مهم‌ترین توافقی خواهد بود که هر یک از این کشورهای بزرگ اما همواره درگیرِ منازعه تاکنون امضا کرده‌اند. هیچ‌چیز در گذشته یا آینده از آن فراتر نخواهد رفت.
+@withyashar
+بنابراین، من به‌طور الزامی درخواست می‌کنم که همه کشورها فوراً پیمان‌های ابراهیم را امضا کنند، و اگر ایران توافق خود را با من، به‌عنوان رئیس‌جمهور ایالات متحده آمریکا، امضا کند، حضور ایران نیز در این ائتلاف بی‌نظیر جهانی مایه افتخار خواهد بود.
+
+خاورمیانه متحد، قدرتمند و از نظر اقتصادی نیرومند خواهد شد؛ شاید بیش از هر منطقه دیگری در جهان!
+
+با انتشار این پیام در تروث سوشال، از نمایندگان خود می‌خواهم روند پیوستن این کشورها به پیمان‌های ابراهیمِ تاریخی را آغاز کرده و با موفقیت به پایان برسانند.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342198
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342198_1779712375.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A possible Iran deal is “95% complete” — but the final stretch may take days.
+
+U.S. officials say the plan would formally end the war, reopen the Strait of Hormuz without tolls, and eventually address Iran’s enriched nuclear material.
+
+Iran could see billions in frozen assets released and oil sanctions waivers — but only if officials say Tehran holds up its end of the bargain. | @TreyYingst
+</div>
+
+## pm_afshaa — post 91452
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴همتی رئیس بانک مرکزی برای آزادسازی منابع ارزی ایران راهی قطر شده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 4938
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ سفر همتی به قطر در راستای پروندۀ پول‌های بلوکه‌شدۀ رژیم
+
+خبرگزاری‎‌های داخلی ایران، از سفر عبدالناصر همتی، رئیس کل بانک مرکزی جمهوری اسلامی، به قطر خبر دادند. بنا بر گزارش‌ها یکی از محورهای این سفر، پیگیری آزادسازی منابع ارزی جمهوری اسلامی است.
+قطر از سال ۲۰۲۳ و پس از انتقال حدود شش میلیارد دلار از دارایی‌های بلوکه‌شده ایران در کرۀ جنوبی، به یکی از محورهای اصلی پروندۀ مالی تهران و واشینگتن تبدیل شد.
+در هفته‌های اخیر، همزمان با مذاکرات غیرمستقیم تهران و واشینگتن، موضوع آزادسازی دارایی‌های مسدودشدۀ جمهوری اسلامی مطرح شد.
+برخی از منابع خارجی گزارش دادند که آزادسازی بخشی از این منابع می‌تواند به پیشرفت مذاکرات و امنیت تنگۀ هرمز پیوند خورده باشد.
+قطر اکنون علاوه بر نگهداری بخشی از منابع مالی بلوکه شدۀ جمهوری اسلامی، یکی از مسیرهای فعال میانجی‌گری میان تهران و واشینگتن به شمار می‌رود.
+
+#مذاکرات #توافق #تحریم
+@DEJradio
+</div>
+
+## DEJradio — post 4937
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ترامپ گفت توافق با جمهوری اسلامی یا عالی و معنادار می‌شود یا توافقی در کار نیست
+
+دونالد ترامپ، رئیس‌ جمهوری آمریکا، روز دوشنبه در شبکۀ اجتماعی تروث نوشت توافق احتمالی با جمهوری اسلامی یا «عالی و معنادار» می‌شود یا اصلا توافقی انجام نمی‌گیرد.
+ترامپ منتقدان دموکرات و برخی جمهوری‌خواهان را متهم کرد که آنها دربارۀ موضوعاتی نظر می‌دهند که هنوز مذاکره نشده‌ است.
+او بازهم توافق هسته‌ای برجام را «فاجعه» خواند. ترامپ گفت دولت باراک اوباما مسیری مستقیم و آشکار را برای دستیابی جمهوری اسلامی به جنگ‌افزار هسته‌ای ایجاد کرده بود.
+رئیس‌ جمهوری آمریکا تأکید کرد توافق احتمالی دولت او دقیقأا درنقطۀ مقابل برجام قرار می‌گیرد.
+ترامپ افزود: من چنین توافق‌هایی مشابه برجام را انجام نمی‌دهم.
+
+#مذاکرات #ترامپ
+@DEJradio
+</div>
+
+## kianmeli1 — post 87658
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87658_1779712378.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به مجری فاکس‌نیوز: هرگز پول نقد به ایران نمی‌دهم
+
+لارنس‌بی جونز مجری مطرح فاکس‌نیوز پس از گفت‌وگو با رئیس‌جمهور آمریکا اعلام کرد ترامپ به شدت شایعات مربوط به توافق هسته‌ای ضعیف را رد می‌کند و اعلام می‌دارد که هرگز «پول نقد» به تهران تحویل نخواهد داد.
+رئیس‌جمهور ترامپ به او گفته است که منتقدانی که ادعای رویکرد نرم دارند، کاملاً اشتباه می‌کنند.
+
+ترامپ افزود:
+«آیا واقعاً فکر می‌کنید که من بعد از همه آن حرف‌هایی که زده‌ام درباره اینکه ایران هرگز به سلاح هسته‌ای دست نخواهد یافت، رئیس‌جمهور بشوم و بعد فقط پول نقد به آنها بدهم؟»
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 338919
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338919" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار نیم‌روزی | دوشنبه ۴ خرداد
+@iranintlTV
+</div>
+
+## Shin_Persian — post 6217
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6217_1779712381.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Mon, 25 May 2026 12:25:27 UTC President Trump @POTUS: "Negotiations with the Islamic Republic of Iran are proceeding nicely! It will only be a Great Deal for all or, no Deal at all — Back to the Battlefront and shooting, but bigger…
+</div>
+
+## Shin_Persian — post 6216
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 25 May 2026 12:25:27 UTC
+
+President Trump @POTUS:
+"Negotiations with the Islamic Republic of Iran are proceeding nicely! It will only be a Great Deal for all or, no Deal at all — Back to the Battlefront and shooting, but bigger and stronger than ever before — And nobody wants that! During my discussions on Saturday with President Mohammed bin Salman Al Saud, of Saudi Arabia, Mohammed bin Zayed Al Nahyan, of The United Arab Emirates, Emir Tamim bin Hamad bin Khalifa Al Thani, Prime Minister Mohammed bin Abdulrahman bin Jassim bin Jaber Al Thani, and Minister Ali al-Thawadi, of Qatar, Field Marshal Syed Asim Munir Ahmed Shah, of Pakistan, President Recep Tayyip Erdoğan, of Türkiye, President Abdel Fattah El-Sisi, of Egypt, King Abdullah II, of Jordan, and King Hamad bin Isa Al Khalifa, of Bahrain, I stated that, after all the work done by the United States to try and pull this very complex puzzle together,  it should be mandatory that all of these Countries, at a minimum, simultaneously, sign onto the Abraham Accords. Those Countries discussed are Saudi Arabia, The United Arab Emirates (already a Member!), Qatar, Pakistan, Türkiye, Egypt, Jordan, and Bahrain (already a Member!). It may be possible that one or two have a reason for not doing so, and that will be accepted, but most should be ready, willing, and able to make this Settlement with Iran a far more Historic Event than it would, otherwise, be. The Abraham Accords have proven to be, for the Countries involved (The United Arab Emirates, Bahrain, Morocco, Sudan, and Kazakhstan), a Financial, Economic, and Social BOOM, even during this time of Conflict and War, with the current Members never even suggesting leaving, or taking so much as even a pause. The reason for this is that the Abraham Accords have been great for them, and will be even better for everybody, and bring true Power, Strength, and Peace to the Middle East for the first time in 5,000 years. It will be a Document respected like no other that has ever been signed, anywhere in the World. Its level of Importance and Prestige will be unparalleled! It should start with the immediate signing by Saudi Arabia and Qatar, and everybody else should follow suit. If they don’t, they should not be part of this Deal in that it shows bad intention. In speaking to numerous of the Great Leaders mentioned above, they would be honored, as soon as our Document is signed, to have the Islamic Republic of Iran as part of the Abraham Accords. Wow, now that would be something special! This will be the most important Deal that any of these Great, but always in Conflict Countries, will ever sign. Nothing in the past, or in the future, will surpass it. Therefore, I am mandatorily requesting that all Countries immediately sign the Abraham Accords, and that, if Iran signs its Agreement with me, as President of the United States of America, it would be an Honor to have them also be part of this unparalleled World Coalition. The Middle East would be United, Powerful, and Economically Strong, like perhaps no other area, anywhere in the World! By copy of this TRUTH, I am asking my Representatives to begin, and successfully complete, the process of signing these Countries into the already Historic Abraham Accords. Thank you for your attention to this matter!DONALD J. TRUMPPRESIDENT OF THE UNITED STATES OF AMERICA"
+
+ترجمه فارسی در بخش نظرات
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6215
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 25 May 2026 12:23:07 UTC
+
+State-owned Mehr reports that Regime’s parliament spokesman, Mohammad Bagher Ghalibaf, as well as FM Araghchi and Head of the Central Bank Hemmati have traveled to Qatar to discuss the ceasefire talks and sanction relief
+#Iran
+
+فارسی
+
+خبرگزاری دولتی مهر گزارش می‌دهد که محمدباقر قالیباف سخنگوی مجلس رژیم، به همراه عراقچی وزیر امور خارجه و همتی رئیس بانک مرکزی برای گفتگو درباره مذاکرات آتش‌بس و رفع تحریم‌ها به قطر سفر کرده‌اند.
+#Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 14935
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14935_1779712382.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸 حنظله اطلاعات ۶۹ افسر اسرائیلی که به کاروان صمود حمله کردند را افشا کرد
+
+گروه هکری حنظله:
+
+🔹نام‌ها و مشخصات کامل ۶۹ افسر نیروی دریایی اسرائیل که اخیراً به کاروان جهانی «صمود» حمله کردند، افشا شده و برای هر یک از این افراد مبلغ ۱۰۰ هزار دلار جایزه تعیین شده است.
+
+
+👩‍💻PhantomDirective
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 390143
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دسته جمعی به گا رفتیم مقصرم تو یخچاله.
+
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390142
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏ترامپ هم مثل منه، معلوم نیست چه گهی داره تو زندگیش می‌خوره‌.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 122563
+
+<div align="center">
+  <a href="telegram/content/alonews_122563_1779712383.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : مذاکرات با جمهوری اسلامی ایران به خوبی در حال پیشرفت است!
+
+
+
+🔴این فقط یک توافق بزرگ برای همه خواهد بود یا اصلاً توافقی نخواهد بود — بازگشت به جبهه نبرد و تیراندازی، اما بزرگ‌تر و قوی‌تر از هر زمان قبل — و هیچ‌کس آن را نمی‌خواهد!
+
+
+🔴من اعلام کردم که پس از تمام کارهایی که ایالات متحده انجام داده تا سعی کند این پازل بسیار پیچیده را کنار هم بچیند، باید الزامی باشد که تمام این کشورها، حداقل، همزمان به توافق‌نامه‌های ابراهیم بپیوندند.
+
+
+🔴ممکن است یکی یا دو کشور دلیل داشته باشند که این کار را نکنند و این پذیرفته خواهد شد، اما اکثریت باید آماده، مایل و قادر باشند که این تسویه حساب با ایران را به رویدادی بسیار تاریخی‌تر تبدیل کنند تا آن چیزی که در غیر این صورت خواهد بود.
+
+
+🔴در صحبت با بسیاری از رهبران بزرگ ذکر شده در بالا، آن‌ها افتخار خواهند کرد، به محض اینکه سند ما امضا شود، که جمهوری اسلامی ایران به عنوان بخشی از توافق‌نامه‌های ابراهیم حضور داشته باشد. وای، این واقعاً چیزی خاص خواهد بود!
+
+
+🔴من به صورت الزامی درخواست می‌کنم که تمام کشورها فوراً توافق‌نامه‌های ابراهیم را امضا کنند و اگر ایران توافق‌نامه خود را با من، به عنوان رئیس‌جمهور ایالات متحده آمریکا، امضا کند، افتخاری خواهد بود که آن‌ها نیز بخشی از این ائتلاف بی‌نظیر جهانی باشند.
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122562
+
+<div align="center">
+  <a href="telegram/content/alonews_122562_1779712383.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 رئیس‌جمهور چین شی جین‌پینگ به نخست‌وزیر پاکستان شریف: از زمان برقراری روابط دیپلماتیک ۷۵ سال پیش، چین و پاکستان یکدیگر را درک کرده‌اند، به یکدیگر اعتماد کرده‌اند و از یکدیگر حمایت کرده‌اند و دوستی سنتی شکست‌ناپذیری را شکل داده‌اند.
+
+
+🔴علی‌رغم تغییرات بین‌المللی، چین همواره روابط با پاکستان را در دیپلماسی همسایگی خود در اولویت قرار داده است.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122561
+
+<div align="center">
+  <a href="telegram/content/alonews_122561_1779712385.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 شی جین‌پینگ، رئیس‌جمهور چین: فیلد مارشال منیر، می‌دانم که شما تازه برای تلاش‌های مثبت در میانجی‌گری برای صلح از ایران بازگشته‌اید.
+
+
+🔴ما نقش سازنده پاکستان را تقدیر می‌کنیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122559
+
+<div align="center">
+  <a href="telegram/content/alonews_122559_1779712388.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش دفاعی اسرائیل دو هشدار تخلیه برای ساختمان‌هایی در برج الشمالی، منطقه صور، جنوب لبنان صادر کرده است.
+
+
+🔴 ارتش اسرائیل ادعا می‌کند که این ساختمان‌ها توسط حزب‌الله استفاده می‌شوند..
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122558
+
+<div align="center">
+  <a href="telegram/content/alonews_122558_1779712388.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری مهر: محمد باقر قالیباف با امیر قطر دیدار خواهد کرد!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122557
+
+<div align="center">
+  <a href="telegram/content/alonews_122557_1779712388.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به مجری فاکس‌نیوز: هرگز پول نقد به ایران نمی‌دهم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 15:52
 ---
 
