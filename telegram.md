@@ -7,6 +7,228 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 21:33
+---
+
+## WithYashar — post 12450
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام آمریکایی به اکسیوس گفت: دولت ترامپ از تشدید اقدام نظامی اسرائیل در لبنان حمایت خواهد کرد. @withyashar
+</div>
+
+## FoxNewsTwitter — post 342236
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+SEE IT: President Trump, VP Vance, and Secretary Pete Hegseth participate in a Memorial Day ceremony honoring fallen U.S. service members and their families.
+
+The event featured military tributes, moments of silence, and recognition of Gold Star families gathered to remember loved ones lost in service.
+</div>
+
+## pm_afshaa — post 91474
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو در بیانیه‌ای اعلام کرد ما به حزب‌الله ضربه‌ای مهلک خواهیم زد. از استقامت ساکنان شمال تقدیر می‌کنم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91473
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسایی: پزشکیان خودشم میدونه نمیتونه اینترنت رو وصل کنه. این خبرای جدید بازی رسانه‌ایه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 75710
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75710_1779732226.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعاتی پس از انتشار خبر تصویب تصمیم بازگشت اینترنت به خانه‌های مردم، چند رسانه در داخل کشور می‌گویند که مسعود پزشکیان، رئیس جمهور، این مصوبه را به طور رسمی ابلاغ کرده است.
+
+رسانه‌ها در ایران روز دوشنبه از تصویب مصوبه‌ای «جدید و مهم» دربارهٔ اتصال دوباره اینترنت کشور به اینترنت بین‌الملل در «ستاد ویژه ساماندهی فضای مجازی» خبر داده‌ بودند، مصوبه‌ای که برای اجرا نیازمند تأیید نهایی مسعود پزشکیان، رئیس‌جمهور ایران، بود.
+
+به گزارش سیتنا، پایگاه خبری فناوری اطلاعات، بر اساس این مصوبه، اینترنت عمومی باید «به وضعیت قبل از دی‌ماه ۱۴۰۴» بازگردد.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 338966
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338966_1779732227.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻لوئیس دلا فوئنته، سرمربی تیم ملی اسپانیا امروز فهرست نهایی خود برای جام جهانی ۲۰۲۶ را اعلام کرد. فهرستی که هسته اصلی تیم قهرمان یورو را حفظ کرده، اما شگفتی بزرگی دارد؛ برای نخستین‌بار در تاریخ حضور اسپانیا در جام‌های جهانی، حتی یک بازیکن از رئال مادرید حضور ندارد.
+
+🔹ستون اصلی تیمی که یورو ۲۰۲۴ را فتح کرد، همچنان شالوده تیم ملی اسپانیا برای جام جهانی ۲۰۲۶ را تشکیل می‌دهد.
+
+🔹بازیکنانی مانند رودری، پدری، فابیان روئیس، دنی اولمو و لامین یامال همچنان مهره‌های کلیدی تیم محسوب می‌شوند.
+
+🔹با این لیست، برای نخستین‌بار در ۹۲ سال حضور اسپانیا در جام جهانی، هیچ نماینده‌ای از پرافتخارترین باشگاه این کشور در ترکیب تیم ملی حضور نخواهد داشت. در عوض بارسلونا، قهرمان دو فصل اخیر لالیگا، ۸ نماینده در ترکیب دارد.
+
+🔹لوئیس دلا فوئنته گفته فرم فعلی و آمادگی بدنی بازیکنان را در اولویت قرار داده است؛ تصمیمی که باعث غیبت‌های قابل توجه و در عین حال دعوت از چهره‌هایی شد که در طول فصل درخشیدند.
+
+🔹فهرست نهایی اسپانیا و تحلیلی درباره ترکیب ۲۰۲۶ را در وب‌سایت ایران اینترنشنال بخوانید.
+
+@iranintltvsport
+</div>
+
+## Shin_Persian — post 6218
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 25 May 2026 17:57:24 UTC
+
+Al Arabiya is NewYorkTimesing too much these days. I would take their news on Iran talks with a huge grain of salt
+
+فارسی
+
+العربیه این روزها بیش از حد به سبک نیویورک تایمز (NYT) عمل می‌کند. من اخبار آن‌ها درباره مذاکرات ایران را با تردید بسیار زیاد می‌پذیرم.
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 14964
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14964_1779732228.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴در این ویدئو آماده سازی و تمرینات سخت نیروهای ویژه کره شمالی را مشاهده میکنید .
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14963
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14963_1779732229.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗻
+💥ویرانی گسترده زاغه مهمات اصفهان
+
+
+✈️تصاویر ماهواره‌ای منتشرشده از قبل و بعدِ حمله به زاغه مهمات واقع در پشت کوه صفه اصفهان، نشان می‌دهد این مجموعه به‌طور کامل تخریب شده و بخش عمده تأسیسات و انبارهای آن از بین رفته‌اند.
+
+
+💣این مرکز در تاریخ ۱۱ فروردین توسط بمب افکن های آمریکایی مورد هدف قرار گرفت و طبق ویدیوهای منتشرشده از آن شب، انفجار مهمات داخل پایگاه تا ساعت‌ها پس از حمله ادامه داشته است.
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157550
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157550_1779732230.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ساعاتی پس از انتشار خبر تصویب تصمیم بازگشت اینترنت به خانه‌های مردم، چند رسانه در داخل کشور می‌گویند که مسعود پزشکیان، رئیس جمهور، این مصوبه را به طور رسمی ابلاغ کرده است.
+
+🔸رسانه‌ها در ایران روز دوشنبه از تصویب مصوبه‌ای «جدید و مهم» دربارهٔ اتصال دوباره اینترنت کشور به اینترنت بین‌الملل در «ستاد ویژه ساماندهی فضای مجازی» خبر داده‌ بودند، مصوبه‌ای که برای اجرا نیازمند تأیید نهایی مسعود پزشکیان، رئیس‌جمهور ایران، بود.
+
+🔸به نوشته خبرگزاری فارس، در چهارمین جلسه این ستاد به ریاست محمدرضا عارف، معاون اول رئیس‌جمهور، «مصوبات مهمی» دربارهٔ اتصال به اینترنت بین‌الملل به تصویب رسیده است.
+
+🔸فارس به نقل از یک منبع نوشته بود که «برقراری اتصال اینترنت بین‌الملل» با ۹ رأی موافق و سه رأی مخالف تصویب شده و برای تأیید به دفتر رئیس‌جمهور ارسال شده است.
+
+🔸به گزارش سیتنا، پایگاه خبری فناوری اطلاعات، بر اساس این مصوبه، اینترنت عمومی باید «به وضعیت قبل از دی‌ماه ۱۴۰۴» بازگردد.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 20749
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حمید رسایی نماینده حرومی مجلس : اینکه بخوان اینترنت بین الملل رو وصل کنن کاملا غیرقانونیه و‌ پزشکیان اصلا نمیتونه همچین کاریو انجام بده و تواناییش رو نداره ، و اینکار فقط برای حواس پرتیه @IranianMinds
+</div>
+
+## IranianMinds — post 20748
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20748_1779732230.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حمید رسایی نماینده حرومی مجلس :
+
+اینکه بخوان اینترنت بین الملل رو وصل کنن کاملا غیرقانونیه و‌ پزشکیان اصلا نمیتونه همچین کاریو انجام بده و تواناییش رو نداره ، و اینکار فقط برای حواس پرتیه
+
+@IranianMinds
+</div>
+
+## Hranews — post 113160
+
+<div align="center">
+  <img src="telegram/content/Hranews_113160_1779732231.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهسا زیدآبادی با تودیع وثیقه از زندان تربت حیدریه آزاد شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– مهسا زیدآبادی، شهروند اهل سبزوار، امروز با تودیع وثیقه از زندان تربت حیدریه آزاد شد.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، مهسا زیدآبادی آزاد شد.
+
+بر اساس اطلاعات دریافتی هرانا، آزادی مهسا زیدآبادی امروز دوشنبه ۴ خردادماه، با تودیع وثیقه هفت میلیارد تومانی از زندان تربت حیدریه صورت گرفته است.
+
+ادامه مطلب
+
+#مهسا_زیدآبادی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 122634
+
+<div align="center">
+  <a href="telegram/content/alonews_122634_1779732231.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسایی، از رهبران بولشویک‌ها:
+پزشکیان خودشم میدونه نمیتونه اینترنت رو وصل کنه. این خبرای جدید بازی رسانه‌ایه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122633
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اخبار جنگ الونیوز AloNews pinned a photo
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 21:23
 ---
 
