@@ -7,6 +7,57 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 12:32
+---
+
+## WithYashar — post 12404
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بقایی: برای تنگه هرمز عوارض نمی‌گیریم؛ هزینه‌های دریافتی صرفاً بابت خدمات ناوبری و حفاظت از محیط زیست است
+@withyashar
+</div>
+
+## IranIntlTV — post 338887
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338887_1779699758.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران‌اینترنشنال درباره اخبار مربوط به مذاکرات آمریکا و جمهوری اسلامی می‌گوید: «ناامیدی و افسردگی به حدی در مردم بالاست که شبیه مرده‌های متحرک زندگی می‌کنیم. اگر قرار است مذاکره‌ای شود، وضعیت مردم و تغییرِ حکومت با انتخاب مردم هم باید جزوش باشد.»
+</div>
+
+## alonews — post 122504
+
+<div align="center">
+  <a href="telegram/content/alonews_122504_1779699760.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی وزارت خارجه: ایران در دفاع از خود هیچ گزینه‌ای را منتفی نمی‌داند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122503
+
+<div align="center">
+  <a href="telegram/content/alonews_122503_1779699760.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت امور خارجه چین: در جهان تنها یک چین وجود دارد.
+
+
+🔴تایوان بخش جدایی‌ناپذیر از قلمرو چین است
+
+
+🔴ما از طرف آلمان می‌خواهیم که اصل چین واحد را حفظ کند و ارسال سیگنال‌های نادرست به نیروهای جدایی‌طلب استقلال تایوان را متوقف نماید.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 12:22
 ---
 
