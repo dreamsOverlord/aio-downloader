@@ -7,6 +7,170 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 20:43
+---
+
+## WithYashar — post 12587
+
+
+
+
+## WithYashar — post 12586
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو، در بیانیه‌ای اعلام کرد که نیروهای زمینی اسرائیل در حال «گسترش و تعمیق» عملیات این رژیم در لبنان هستند و «در حال تصرف مناطق وسیعی هستند»
+@withyashar
+</div>
+
+## WithYashar — post 12585
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ عبری:
+آمریکا به اسرائیل هشدار داد که به هیچ شکلی به بیروت حمله نکند.
+@withyashar 😐
+</div>
+
+## IranIntlTV — post 339127
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339127_1779815634.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻علیرضا فیروزجا، نماینده فرانسه در دور نخست رقابت‌های شطرنج نروژ موفق شد مگنوس کارلسن، مرد شماره یک شطرنج جهان را شکست دهد؛ آن هم در حالی که به دلیل آسیب‌دیدگی مچ پا با کمک صندلی مخصوص بازی می‌کرد.
+
+🔹فیروزجا هفته گذشته پس از سقوط از روی سکو در مسابقات بخارست مصدوم شد.
+
+@iranintltvsport
+</div>
+
+## Shin_Persian — post 6247
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Fox News ✓ @FoxNews Tue, 26 May 2026 15:17:47 UTC BREAKING: President Trump will convene a rare Cabinet meeting at Camp David on Wednesday as negotiations with Iran enter a critical phase. All Cabinet members are expected to attend the…
+</div>
+
+## Shin_Persian — post 6246
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Fox News ✓ @FoxNews
+Tue, 26 May 2026 15:17:47 UTC
+
+BREAKING: President Trump will convene a rare Cabinet meeting at Camp David on Wednesday as negotiations with Iran enter a critical phase.
+
+All Cabinet members are expected to attend the meeting, Fox News has confirmed, including outgoing Director of National Intelligence Tulsi
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+فوری: پرزیدنت ترامپ روز چهارشنبه در حالی که مذاکرات با ایران وارد مرحله‌ ای حیاتی می‌شود، یک جلسه نادر هیئت دولت را در کمپ دیوید برگزار خواهد کرد.
+
+فاکس نیوز تایید کرده است که انتظار می‌رود تمام اعضای کابینه در این جلسه شرکت کنند، از جمله تولسی گبرد، مدیر آتی اطلاعات ملی (DNI).
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 218724
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218724_1779815635.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل ویدیویی از حملات هوایی به مواضع حزب‌الله در جنوب لبنان منتشر و تاکید کرد نیروهایش به هدف‌گیری زیرساخت‌های این سازمان تروریستی در جنوب لبنان ادامه می‌دهند.
+
+ارتش اسرائیل در ادامه اعلام کرد «تروریست‌هایی که در حال پیشبرد طرح‌های تروریستی علیه نیروهای ما بودند به هلاکت رسیدند و زیرساخت‌هایی که برای شلیک راکت استفاده می‌شدند هدف قرار گرفتند.»
+</div>
+
+## FarsiVOA — post 218723
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در میدان پرسیدیم: چرا ساواک پرویز قلیچ‌خانی، ستاره فوتبال ایران را بازداشت کرد؟
+</div>
+
+## DW_Farsi — post 125170
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125170_1779815638.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 نت‌بلاکس : نشانه‌های برگشت اینترنت در ایران دیده می‌شود
+
+نت‌بلاکس، نهاد ناظر بر وضعیت اینترنت در جهان اعلام کرد، بالاخره بعد از ۲۰۹۳ ساعت قطعی، نشانه‌هایی از اتصال مجدد اینترنت در ایران دیده می‌شود.
+
+نت‌بلاکس می‌گوید، در ۸۸مین روز و پس از ۲۰۹۳ ساعت قطعی، بخشی از اتصال اینترنت در ایران برقرار شده است.
+
+این نهاد همچنین نوشت، این مدت خاموشی اینترنت در ایران "طولانی‌ترین قطع سراسری" این شبکه جهانی ارتباطی در تاریخ معاصر به شمار می‌رود.
+
+نت‌بلاکس همچنین با ابراز تردید نسبت به ثبات اتصال اینترنت در ایران ادامه داد: «مشخص نیست که این بازگشت ارتباط، پایدار خواهد بود یا نه.»
+
+@dw_farsi
+</div>
+
+## IranianMinds — post 20824
+
+<div align="center">
+  <a href="https://t.me/IranianMinds/20824" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📎 Document
+</div>
+
+## idfinfarsi — post 11649
+
+<div align="center">
+  <a href="telegram/content/idfinfarsi_11649_1779815640.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## idfinfarsi — post 11648
+
+<div align="center">
+  <a href="telegram/content/idfinfarsi_11648_1779815642.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## alonews — post 122879
+
+<div align="center">
+  <a href="telegram/content/alonews_122879_1779815645.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۴ عبری: برآوردهایی در اسرائیل وجود دارد که توافق با ایران تقریباً به طور حتم لبنان را نیز در بر خواهد گرفت.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122878
+
+<div align="center">
+  <a href="telegram/content/alonews_122878_1779815645.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۲ اسرائیل: آمریکا به اسرائیل نسبت به حمله به هر شکل به بیروت هشدار داده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122877
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خوش آمد میگم به رفقایی که تازه وصل شدن
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 20:33
 ---
 
