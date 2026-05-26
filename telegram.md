@@ -7,6 +7,194 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 12:42
+---
+
+## VahidOOnLine — post 242250
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242250_1779786766.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی نیکزاد، نایب‌رییس مجلس، گفت: «از آغاز جنگ نمایندگان تمایل داشتند جلسات صحن علنی برگزار شود اما نهادهای اطلاعاتی و امنیتی با این موضوع موافقت نکردند.»
+
+او افزود: «جلسات مجلس در حال حاضر به‌صورت وبیناری برگزار می‌شود و در صورت فراهم شدن شرایط، نشست‌ها دوباره به شکل حضوری در صحن علنی برگزار خواهد شد.»
+
+این در حالی است که از زمان آغاز جنگ در ۹ اسفند ۱۴۰۴، جلسات صحن علنی مجلس تعطیل شده و حتی انتخابات هیات رییسه در روز دوشنبه نیز در مکانی نامعلوم برگزار شده بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12533
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar ماجرای ری اکشن
+</div>
+
+## IranIntlTV — post 339065
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339065_1779786767.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻علیرضا دبیر، رییس فدراسیون کشتی در حاشیه رونمایی از سه کتاب گفت: «بروید تاریخ بخوانید، در تاریخ ایران به باسوادی امام و آقا نداشتیم، بسیار کتابخوان و باسواد بودند.» او همچنین درباره جنگ با آمریکا گفت: «ما با اینها جنگ داریم الان هم نشود بعد از جام جهانی می‌آیند.»
+
+🔹دبیر در وصف کتابخوانی خود گفت: «ذهنم را با اطلاعات الکی پر نمی‌کنم، فضای مجازی را دنبال نمی‌کنم که وقتم گرفته نشود و همه به خاطر این کتاب هاست که خواندم.»
+
+🔹او گفت: «من در ایام قهرمانی با دو دست زیر می‌گرفتنم و با دو دست زیر گرفتن را از تیمور لنگ یاد گرفتم. او با دو دست شمشیر می‌زد. این کتاب را می‌خواندم که با دو دست روی اسب شمشیر می‌زد.»
+
+🔹رییس فدراسیون فوتبال با اعتراف به سرسپردگی خود به علی خامنه‌ای، رهبر جمهوری اسلامی، گفت: «شب به شب اخبار را می‌دیدم و آقا تکلیف را مشخص می‌کرد. نتیجه هم گرفتیم هر جا حرف گوش کردیم عاقبت به خیری بود هم در سیاست و هم در ورزش. من محو در آقا بودم، اما الان ولی فقیه و امام ما آقا مجتبی است.»
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 339063
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339063_1779786767.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش‌های رسیده به ایران‌اینترنشنال از افزایش فشارهای امنیتی بر دانشجویان دانشگاه شریف در یک ماه اخیر حکایت دارد. بر اساس این گزارش‌ها، نزدیک به ۳۰ دانشجو به کمیته انضباطی احضار شدند. برای شش نفر حکم اخراج و برای شماری دیگر محرومیت چندساله از تحصیل در همه دانشگاه‌ها صادر شده است.
+جزییات بیشتر با لیلا سعادتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339062
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339062_1779786769.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی نیکزاد، نایب‌رییس مجلس، گفت: «از آغاز جنگ نمایندگان تمایل داشتند جلسات صحن علنی برگزار شود اما نهادهای اطلاعاتی و امنیتی با این موضوع موافقت نکردند.»
+
+او افزود: «جلسات مجلس در حال حاضر به‌صورت وبیناری برگزار می‌شود و در صورت فراهم شدن شرایط، نشست‌ها دوباره به شکل حضوری در صحن علنی برگزار خواهد شد.»
+
+این در حالی است که از زمان آغاز جنگ در ۹ اسفند ۱۴۰۴، جلسات صحن علنی مجلس تعطیل شده و حتی انتخابات هیات رییسه در روز دوشنبه نیز در مکانی نامعلوم برگزار شده بود.
+https://iranintl.com/202605264769
+</div>
+
+## IranIntlTV — post 339061
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339061_1779786769.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بررسی‌های ایران‌اینترنشنال نشان می‌دهد جمهوری اسلامی در کمتر از ۷۰ روز، دست‌کم ۳۹ زندانی سیاسی را اعدام کرده است؛ از جمله ۱۵ نفر از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴.
+بیشترین احکام اعدام در استان‌های تهران و البرز اجرا شده است.
+@iranintltv
+</div>
+
+## DW_Farsi — post 125154
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125154_1779786771.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸 عکس روز: پناه بردن از خورشید به "دختر خدای خورشید"
+
+رود تاوی منبع اصلی تأمین آب آشامیدنی، مصارف خانگی و کشاورزی برای کل شهر جاموی هند است. تاوی در میان اهالی، رودخانه‌ای است مقدس و بر آن "دختر خدای خورشید" (سوریا پوتری) نام نهاده‌اند. تابش خورشید حالا اما در جامو به حدی است که زنی را واداشته برای خنک شدن به آب تاوی پناه ببرد.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15053
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15053_1779786771.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دقایقی قبل نت‌بلاکس آپدیت جدیدی از وضعیت اینترنت بین‌الملل ایران منتشر کرد. 
+👩‍💻@PhantomDirective 
+🆔@persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Hranews — post 113171
+
+<div align="center">
+  <img src="telegram/content/Hranews_113171_1779786771.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس آخرین داده‌های نت‌بلاکس، اکنون هشتادوهشتمین روز متوالی قطع #اینترنت در ایران است؛ محدودیتی که بیش از ۲۰۸۸ ساعت ادامه داشته است.
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 122757
+
+<div align="center">
+  <a href="telegram/content/alonews_122757_1779786772.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر علوم: در خصوص نحوه برگزاری امتحانات دانشگاه‌ها، ظرف چند روز آینده تصمیم نهایی را به اطلاع دانشجویان خواهیم رساند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122756
+
+<div align="center">
+  <a href="telegram/content/alonews_122756_1779786772.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای آسوشیتدپرس: میانجی‌گری قطر توانسته است به یک تفاهم میان آمریکا و ایران درباره «دارایی‌های مسدود شده» دست یابد.
+
+
+🔴انتظار می‌رود ایالات متحده و ایران امروز توافقی را درباره «پول‌های مسدود شده» اعلام کنند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122755
+
+<div align="center">
+  <a href="telegram/content/alonews_122755_1779786773.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 هشدارهای پهپاد در منطقه خط رویارویی، شمال اسرائیل فعال هستند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122754
+
+<div align="center">
+  <a href="telegram/content/alonews_122754_1779786773.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 سخنگوی دولت درباره گمانه‌زنی‌ها پیرامون افزایش قیمت بنزین: ما در طول جنگ گذشته آسیب‌هایی دیده‌ایم که قابل انکار نیست
+
+
+🔴 تولید داخلی با اصلاح ساختار‌هایی که صورت می‌گیرد، باید مدیریت شود
+
+
+🔴 درباره عدد و رقم قیمت سوخت چیزی در دولت مطرح نشده
+
+
+🔴 افزایش مبلغ کالابرگ در حال بررسی است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122753
+
+<div align="center">
+  <a href="telegram/content/alonews_122753_1779786773.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اتحادیه مرغداران: قیمت واقعی مرغ ۳۸۰ هزار است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 12:33
 ---
 
