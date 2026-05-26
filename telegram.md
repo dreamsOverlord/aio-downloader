@@ -7,6 +7,119 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 19:33
+---
+
+## WithYashar — post 12578
+
+<div align="center">
+  <a href="telegram/content/WithYashar_12578_1779811439.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : شله داوود
+@withyashar
+</div>
+
+## IranIntlTV — post 339119
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339119_1779811441.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الحدث به نقل از یک منبع آمریکایی گزارش داد اسرائیل در حال حاضر بر جلوگیری از تهدید عمق سرزمینی خود از سوی حزب‌الله تمرکز کرده است.
+
+این منبع افزود هدف کنونی اسرائیل ورود به یک رویارویی جامع بر سر سلاح‌های حزب‌الله یا نقش داخلی این گروه نیست.
+
+بر اساس این گزارش، اسرائیل ممکن است عملیات خود را فراتر از «خط زرد» و حتی به مناطق عمیق‌تر گسترش دهد.
+
+یک منبع دیگر به الحدث گفت واشینگتن با هدف قرار دادن زیرساخت‌های نظامی حزب‌الله و کاهش توانمندی‌های آن از سوی اسرائیل مخالفتی ندارد و تشدید اخیر عملیات نظامی اسرائیل در جنوب لبنان را منفی ارزیابی نمی‌کند.
+
+این منبع همچنین گفت اسرائیل با هدف بازگرداندن ساکنان مناطق شمالی به خانه‌هایشان اقدام می‌کند و افزود حزب‌الله با استفاده از پهپادها و سخنان اخیر نعیم قاسم مسئول فروپاشی روند کاهش تنش است.
+https://iranintl.com/202605262713
+</div>
+
+## IranIntlTV — post 339118
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339118_1779811442.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران اینترنشنال خطاب به رییس‌جمهور آمریکا می‌گوید که باید مقابله با جمهوری اسلامی را به بنیامین نتانیاهو بسپرد. صدای او با هوش مصنوعی خوانده شده است.
+</div>
+
+## FarsiVOA — post 218715
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو با اشاره به حملات هوایی آمریکا به جمهوری اسلامی ایران: تنگه هرمز به هر نحوی باید باز بماند
+</div>
+
+## Dirty_Kids — post 390245
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این پرستو‌هاشونو میبینید تعجب نکنید
+تازه الان دارن میشن یکم شبیهه لبنان
+
+هنوز یکم فاصله دارن ولی بزودی با نیم‌تنه و تاپ هم میان خیابون
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 122864
+
+<div align="center">
+  <a href="telegram/content/alonews_122864_1779811443.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وحشت در فرودگاه بین‌المللی کمپگودا؛ خروج اضطراری مسافران هواپیما
+ 
+
+🔴 پس از آنکه مشاهده دود در هواپیمای ایندیگو در هند، وحشت برای مدتی کوتاه فرودگاه بین‌المللی کمپگودا در بنگلور را فرا گرفت.
+ 
+
+🔴 مسافران هواپیمای شرکت ایندیگو بلافاصله به صورت اضطراری از هواپیما خارج شدند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122863
+
+<div align="center">
+  <a href="telegram/content/alonews_122863_1779811444.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / سی بی اس: دولت قطر گزارش ارائه میلیاردها دلار به ایران برای تثبیت توافق صلح را تکذیب کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122861
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جنگنده‌های اسرائیلی شهرهای سُهمور و مچغره در دره بقاع شرقی لبنان را هدف قرار دادند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122860
+
+<div align="center">
+  <a href="telegram/content/alonews_122860_1779811444.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سنتکام : تا به امروز، مسیر ۱۰۸ کشتی تجاری رو تغییر دادیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 19:23
 ---
 
