@@ -373,6 +373,13 @@ jobs:
 
           echo "::group::Converting to $TARGET_FMT ($BITRATE)"
           find music -type f \( -iname "*.flac" -o -iname "*.m4a" -o -iname "*.mp3" -o -iname "*.ogg" -o -iname "*.opus" -o -iname "*.wav" \) | while read -r f; do
+            # --- Skip if already in the target format ---
+            ext="${f##*.}"
+            if [ "${ext,,}" = "${TARGET_FMT,,}" ]; then
+              echo "Skipping (already $TARGET_FMT): $f"
+              continue
+            fi
+
             base="${f%.*}"
             out="${base}.${TARGET_FMT}"
             echo "Converting: $f → $out"
