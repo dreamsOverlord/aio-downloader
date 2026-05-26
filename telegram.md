@@ -7,6 +7,163 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 21:43
+---
+
+## VahidOOnLine — post 242325
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242325_1779819217.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مسعود پزشکیان، رئیس جمهوری اسلامی ایران، روز سه‌شنبه، با انتشار پیامی به مناسبت «عید قربان»، نوشت که جمهوری اسلامی دست برادری به سوی کشورهای اسلامی دراز کرده و همزمان در صیانت از اقتدار خود ذره‌ای تردید ندارد. پزشکیان همچنین با انتشار پیامی در اکس، نوشت که در گفتگو با رهبران کشورهای عراق، عمان، قطر، ترکیه، تاجیکستان، مصر، قرقیزستان و آذربایجان اظهار امیدواری کرد که «شاهد گسترش همکاری‌ها در همه عرصه‌ها و حمایت همه‌جانبه از هم در مقابل تهدیدها باشیم».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242324
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242324_1779819218.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۴ اسرائیل گزارش داد برآوردها در اسرائیل نشان می‌دهد حمله به ایران فعلا از دستور کار خارج شده و ترامپ به دنبال جلوگیری از بی‌ثباتی امنیتی است.
+
+همزمان کانال ۱۲ گزارش داد آمریکا به اسرائیل گفته به بیروت حمله نکند و ساختمان‌ها را در آنجا هدف قرار ندهد.
+کانال ۱۲ افزود که یک مقام ارشد اسرائیلی تاکید کرد در صورت فراهم بودن فرصت عملیاتی، مجوز انجام ترورهای هدفمند در بیروت وجود دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12594
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12594_1779819219.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نت بلاکس : ۸۶٪ اینترنت ایران برگشته
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342274
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342274_1779819220.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: NASA outlines Moon base progress and industry partnerships https://twitter.com/i/broadcasts/1RKZzzBbdRrKB
+</div>
+
+## DEJradio — post 4998
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4998_1779819221.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ خبر ۲۱
+سه‌شنبه ۵ خرداد ۱۴۰۵
+
+#خبر۲۱
+@DEJradio
+</div>
+
+## IranIntlTV — post 339138
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339138_1779819224.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۴ اسرائیل گزارش داد برآوردها در اسرائیل نشان می‌دهد حمله به ایران فعلا از دستور کار خارج شده و ترامپ به دنبال جلوگیری از بی‌ثباتی امنیتی است.
+
+همزمان کانال ۱۲ گزارش داد آمریکا به اسرائیل گفته به بیروت حمله نکند و ساختمان‌ها را در آنجا هدف قرار ندهد.
+کانال ۱۲ افزود که یک مقام ارشد اسرائیلی تاکید کرد در صورت فراهم بودن فرصت عملیاتی، مجوز انجام ترورهای هدفمند در بیروت وجود دارد.
+https://iranintl.com/202605265818
+</div>
+
+## IranianMinds — post 20834
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عزیزان بعضی سرورارو بخاطر اینکه به شدت شلوغ میشن بعد یه مدت دیلیت میکنیم و جدید میزاریم پس همرو دانلود داشته باشید که اگه یکی قطع شد به اون یکی وصل شید
+
+برا دوستاتونم همرو بفرستید وصل باشن
+</div>
+
+## Hranews — post 113185
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اجرای حکم اعدام ۲ زندانی در مهاباد و رشت/ رهایی یک زندانی از مجازات مرگ
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – حکم دو زندانی که پیشتر از بابت اتهامات مرتبط با جرائم مواد مخدر و قتل به #اعدام محکوم شده بودند، در زندان‌‌های مهاباد و لاکان رشت اجرا شد. همچنین، یک زندانی در زندان سنندج که از بابت اتهام قتل به اعدام محکوم شده بود، با کسب رضایت اولیای دم از مجازات اعدام رهایی یافت.
+
+ادامه مطلب
+
+#عبدالقادر_رسولی
+#امیرعباس_شکری
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 122895
+
+<div align="center">
+  <a href="telegram/content/alonews_122895_1779819225.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هاآرتص:توافق ترامپ با ایران؛ رؤیایی که نتانیاهو در ۲۰۱۸ داشت، حالا به کابوس جهان در ۲۰۲۶ تبدیل شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122894
+
+<div align="center">
+  <a href="telegram/content/alonews_122894_1779819225.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 دولت ترامپ در حال پیشبرد طرحی است که بر اساس آن، پلوتونیوم درجه تسلیحاتی دوران جنگ سرد از کلاهک‌های هسته‌ای منهدم شده را به شرکت‌های خصوصی که قصد تبدیل آن به سوخت برای راکتورهای هسته‌ای را دارند، ارائه دهد، گزارش نیویورک تایمز.
+
+
+🔴اگر نهایی شود، این نخستین بار خواهد بود که وزارت انرژی پلوتونیوم مازاد تسلیحاتی را در اختیار شرکت‌های خصوصی قرار می‌دهد. این وزارتخانه در حال حاضر بیش از ۵۰ تن پلوتونیوم اضافی دارد که قبلاً برای رقیق‌سازی و دفن برنامه‌ریزی شده بود.
+
+
+🔴حامیان این طرح، از جمله اوکلو و نیوکلیو، استدلال می‌کنند که تبدیل این ماده به سوخت راکتور، راه‌حلی کوتاه‌مدت برای کمبود سوخت فراهم می‌کند، در حالی که ایالات متحده به دنبال گسترش ظرفیت انرژی هسته‌ای است.
+
+
+🔴این پیشنهاد نگرانی‌هایی را در میان کارشناسان عدم اشاعه ایجاد کرده و جزئیات مربوط به امنیت، انتقال و ترتیبات دست‌کاری هنوز در حال مذاکره است.
+
+
+🔴شرکت‌هایی که برای مذاکرات پیشرفته تحت برنامه استفاده از پلوتونیوم مازاد انتخاب شده‌اند شامل اوکلو، استاندارد نوکلیر، اگزودیس انرژی، شاین تکنولوژیز و فلیب انرژی هستند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122893
+
+<div align="center">
+  <a href="telegram/content/alonews_122893_1779819225.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پزشکیان: در گفت‌وگو با رهبران ۸ کشور مسلمان اظهار امیدواری کردم که خداوند قلوب ما مسلمانان را به‌هم نزدیک‌تر کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 21:33
 ---
 
