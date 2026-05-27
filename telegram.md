@@ -7,6 +7,257 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 16:33
+---
+
+## VahidOOnLine — post 242426
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242426_1779887014.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا در شبکه اجتماعی «تروث سوشال» گزارشی از روزنامه اورشلیم پست را بازنشر کرد، گزارشی که حدود یک ماه پیش منتشر شده و به افزایش شدید آزار و تعرض جنسی علیه زنان بازداشت‌شده در زندان‌ها و بازداشتگاه‌های جمهوری اسلامی می‌پردازد.
+در این مقاله که به نقل از «مدیا لاین» منتشر شده، آمده است همزمان با تشدید فضای امنیتی و سرکوب داخلی در دوره آتش‌بس، موارد نقض حقوق بشر در ایران به شکل قابل‌توجهی افزایش یافته است؛ از جمله قطع گسترده اینترنت، بازداشت فعالان، ناپدیدسازی اجباری، تهدید روزنامه‌نگاران، افزایش اعدام‌ها و گزارش‌های متعدد از شکنجه و تعرض جنسی در بازداشتگاه‌ها.
+در بخشی از این گزارش، زنی جوان روایت می‌کند که در جریان بازجویی مورد تعرض جنسی قرار گرفته و ماموران درشت‌اندام با باتوم او را شکنجه کرده‌اند. او گفته رفتار ماموران به‌قدری خشونت‌آمیز بوده که آثار جسمی و روانی آن همچنان با او مانده است.
+همچنین زنی معترض به نام «کاملیا» که اخیرا از بازداشت آزاد شده، به «مدیا لاین» گفته نیمه‌شب گروهی از نیروهای مسلح و نقاب‌دار به خانه‌اش یورش بردند و او را مقابل شریک زندگی‌اش بازداشت کردند. به گفته او، شریکش پس از اعتراض به رفتار ماموران به‌شدت کتک خورده و خودش نیز در زمان انتقال و بازداشت تحت آزار جنسی قرار گرفته است.
+کاملیا همچنین گفته دو هفته را در اتاقی ۲۰ متری همراه با ۸ زن دیگر سپری کرده؛ از جمله دختری ۱۶ ساله که با اصابت ساچمه به صورتش زخمی شده بود اما بدون درمان مناسب در بازداشت نگهداری می‌شد و تنها زخم‌هایش را پانسمان کرده بودند.
+در بخش دیگری از این گزارش به وضعیت سه زندانی سیاسی زن، شریفه محمدی، پخشان عزیزی و وریشه مرادی اشاره شده که پس از تایید حکم اعدامشان، در خطر اجرای حکم قرار دارند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242425
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242425_1779887015.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری یونهاپ گزارش داد وزارت خارجه کره جنوبی چهارشنبه سعید کوزه‌چی، سفیر جمهوری اسلامی در سئول، را احضار کرد و نسبت به حمله به کشتی «اچ‌ام‌ام نامو» در تنگه هرمز اعتراض رسمی ارائه داد.
+
+پارک یون‌جو، معاون اول وزیر خارجه کره جنوبی، گفت بررسی‌های فنی نشان می‌دهد دو شیء پرنده‌ای که ۱۴ اردیبهشت به این کشتی برخورد کردند، احتمالا موشک‌های ضدکشتی «نور» ساخت ایران بوده‌اند.
+
+به گفته او، یکی از کلاهک‌ها منفجر نشد اما دیگری هنگام برخورد انفجار و آتش‌سوزی در کشتی ایجاد کرد. در این حادثه یکی از ۲۴ خدمه کشتی زخمی شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12680
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واقعا این ملت باید به دیکتاتور وطن پرست بالا سرشون باشه . ملتی که جمهوری اسلامی پرورش داده جز دزدی بی فکری پاچه خوار تو اوج بیسوادی ولی ادعای دانشمند بودن میکنن آدم فروشی ...... اینا با دموکراسی درست نمیشن فقط باید یه دیکتاتور بالا سرشون باشه مثل رضا خان بزرگ . این جماعت تو هر لحظه رنگ عوض میکنن در این حد احمق حالا یه عده میگن توهین میکنی با کلمه احمق ولی توهین نیس واقعیته یه واقعیت تلخ . حکومت هر کشوری طبق لیاقت مردمش اداره و اجرا میشه واقعا متاسفم پاسوز یه عده جوگیر احمق شدیم
+</div>
+
+## WithYashar — post 12679
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درووود بهت یاشار عزیز،همین که توی حاشیه اصلا حرکت نمیکنی یعنی کارت درسته.فقط(( هدف ))مهمه تمام.
+</div>
+
+## WithYashar — post 12678
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درووود بهت یاشار عزیز،همین که توی حاشیه اصلا حرکت نمیکنی یعنی کارت درسته.فقط(( هدف ))مهمه تمام.
+</div>
+
+## mwarmonitor — post 9809
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_9809_1779887016.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ناتو امروز در حال انجام عملیات گسترده‌ای بر فراز دریای شمال برای شناسایی و شکار زیردریایی‌های روسیه است؛ هم‌زمان، یک فروند هواپیمای شناسایی Rivet Joint بریتانیا در حال انجام مأموریت‌های اطلاعاتی برای رصد تجمع نیروهای روسیه در نزدیکی دریای بالتیک است.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342297
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342297_1779887019.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Trump-backed candidates just keep winning.
+
+After big wins in Texas last night, every single Senate, House, and gubernatorial candidate endorsed by President Trump this year has advanced to the general election so far, giving him a perfect record heading into November.
+</div>
+
+## pm_afshaa — post 91649
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://406d8436-0eb9-4eb2-84fb-960e076ffba6@162.159.38.183:2083?encryption=none&security=tls&sni=de.lezzatzone.ir&alpn=h2%2Chttp%2F1.1&fp=chrome&type=tcp&headerType=none#PMTV%20NEWS%20%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+v2ray سرعت بالا نامحدود مخصوص دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91648
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رئیس ستاد ارتش اسرائیل : ساختار رژیم آیت‌الله‌ها شدیداً ترک برداشته و آینده و ثباتش تو هاله‌ای از ابهامه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91647
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=fn.b2-ray.ru&port=2233&secret=1a78cb0260dffe00aa646e398185a157
+
+پروکسی متصل
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339235
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339235_1779887020.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری یونهاپ گزارش داد وزارت خارجه کره جنوبی چهارشنبه سعید کوزه‌چی، سفیر جمهوری اسلامی در سئول، را احضار کرد و نسبت به حمله به کشتی «اچ‌ام‌ام نامو» در تنگه هرمز اعتراض رسمی ارائه داد.
+
+پارک یون‌جو، معاون اول وزیر خارجه کره جنوبی، گفت بررسی‌های فنی نشان می‌دهد دو شیء پرنده‌ای که ۱۴ اردیبهشت به این کشتی برخورد کردند، احتمالا موشک‌های ضدکشتی «نور» ساخت ایران بوده‌اند.
+
+به گفته او، یکی از کلاهک‌ها منفجر نشد اما دیگری هنگام برخورد انفجار و آتش‌سوزی در کشتی ایجاد کرد. در این حادثه یکی از ۲۴ خدمه کشتی زخمی شد.
+https://iranintl.com/202605272150
+</div>
+
+## IranIntlTV — post 339234
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339234_1779887021.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هفته دوم دادگاه رسیدگی به پرونده حمله به پوریا زراعتی، مجری ایران‌اینترنشنال، در دادگاه وولیچ لندن آغاز شده است. دادستان گفت این حمله از سوی نیروهای نیابتی جمهوری اسلامی انجام شده و مهاجمان برای حمله به زراعتی پول دریافت کردند.
+یکی از متهمان در دادگاه گفت نمی‌دانسته به چه کسی حمله می‌کند و بعدتر از طریق رسانه‌ها متوجه شده قربانی، روزنامه‌نگار ایرانی بوده است.
+
+تاج‌الدین سروش، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## FarsiVOA — post 218798
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پرزیدنت ترامپ مقاله‌ای درباره سرکوب معترضان و افزایش نقض حقوق بشر در ایران را بازنشر کرد
+
+▪️دونالد ترامپ، رئیس جمهوری ایالات متحده، روز چهار‌شنبه ۶ خرداد مقاله‌ای از روزنامه «جروزالم پست» درباره سرکوب معترضان و افزایش شدید سوءاستفاده جنسی در زندان‌های ایران همزمان با آتش‌بس را در حساب کاربری خود در شبکه اجتماعی تروت سوشال بازنشر کرد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/president-trump-posts-jpost-article-on-iran-human-rights-abuses/8154440.html/?nocach=1
+</div>
+
+## IranianMinds — post 20871
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20871_1779887024.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکانت اسرائیل به فارسی:
+
+از لاریجانی یک دست باقی ماند.
+صرفأ جهت آگاهی دوستان داخل ایران.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 390317
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390317_1779887024.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستم اینو‌ گذاشته بود پروفایل «بله‌»ش. مناسبت‌ترین عکس پروفایل برای کارمندی که مجبورش کرده‌ن عضو بله بشه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390316
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390316_1779887025.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یه پسره هر چقدر گیتار می‌زده دیده نمیشده و فقط کلیپ دخترا بازدید می‌خورده.
+
+اونم اومده این شاهکارو درست کرده و ۱۰ میلیون بازدید گرفته :))
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 123059
+
+<div align="center">
+  <a href="telegram/content/alonews_123059_1779887027.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یسرائیل کاتس، وزیر امنیت اسرائیل در جلسه کابینه امنیتی: ما در حال حاضر با ایالات متحده در مورد حملات به منطقه الضاحیه در بیروت وضعیت پیچیده‌ای داریم. در عین حال، ما متعهد به دفاع از خود با تمام وسایل لازم هستیم. هیچ‌کس ما را متوقف نمی‌کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123058
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥 حجم‌های بالا با قیمت‌های باورنکردنی 🔥 ⚡ سرعت بالا 🌐 پایداری عالی 🚀 کیفیتی که حسش میکنی همین الان جوین شو که جا نمونی 😍 @NetAazaadVPN @NetAazaadVPN
+</div>
+
+## alonews — post 123057
+
+<div align="center">
+  <img src="telegram/content/alonews_123057_1779887027.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥 حجم‌های بالا با قیمت‌های باورنکردنی 🔥
+
+⚡ سرعت بالا
+🌐 پایداری عالی
+🚀 کیفیتی که حسش میکنی
+
+همین الان جوین شو که جا نمونی 😍
+
+@NetAazaadVPN
+@NetAazaadVPN
+</div>
+
+## alonews — post 123056
+
+<div align="center">
+  <a href="telegram/content/alonews_123056_1779887028.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جو بایدن، رئیس‌جمهور سابق [آمریکا]، با ثبت شکایتی علیه وزارت دادگستری، تلاش دارد مانع از آن شود که دولت ترامپ فایل‌های صوتی و متن مکتوب مصاحبه‌های خصوصی او را منتشر کند؛ مصاحبه‌هایی که با یک نویسنده در سایه (نویسنده همکار) انجام شده بود که در نگارش کتاب خاطراتش به او کمک می‌کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 16:13
 ---
 
