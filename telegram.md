@@ -7,6 +7,265 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 20:33
+---
+
+## VahidOOnLine — post 242458
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242458_1779901396.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ در نشست کابینه در کاخ سفید بار دیگر بر موضع سخت‌گیرانه واشنگتن نسبت به برنامه هسته‌ای ایران تاکید کرد و گفت: «ایران نمی‌تواند بمب هسته‌ای داشته باشد.» او در عین حال هشدار داد که در صورت دست نیافتن به توافق، «ممکن است مجبور شویم به آنجا برویم و کار را تمام کنیم.»
+ترامپ در ادامه با اشاره به روند مذاکرات گفت که ایران «بسیار مشتاق» رسیدن به توافق است، اما تاکنون نتیجه نهایی حاصل نشده است. او افزود: «ما از وضعیت فعلی راضی نیستیم، ولی خواهیم شد.»
+رئیس‌جمهوری آمریکا با توصیف شرایط ایران، مدعی شد که این کشور تحت فشار شدید قرار دارد و گفت «نیروی دریایی و هوایی آن از بین رفته و همه‌چیزشان از دست رفته است.» او همچنین ادعا کرد ایران در شرایطی وارد مذاکره شده که «چیزی برایش باقی نمانده است.»
+ترامپ همچنین وضعیت اقتصادی ایران را بحرانی توصیف کرد و گفت اقتصاد این کشور «در حال سقوط آزاد» است و به دلیل فشارهای موجود، تهران «گزینه دیگری جز حرکت به سمت توافق ندارد.»
+او در بخش دیگری از سخنانش به وضعیت اینترنت در ایران اشاره کرد و گفت که این کشور پس از فشارهای اخیر دوباره به اینترنت متصل شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242457
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242457_1779901396.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد‌ ترامپ، رئیس‌جمهوری آمریکا، چهارشنبه ششم خرداد، در نشست کابینه در کاخ سفید، از مارکو روبیو، وزیر خارجه آمریکا، و پیت هگست، وزیر دفاع، تمجید کرد و گفت دولتش «افراد فوق‌العاده‌ای» دارد.
+
+ترامپ درباره پیت هگست گفت: «او عاشق جنگ است. من این را دوست ندارم، ولی او آدم خوبی است.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12706
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12706_1779901397.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+️رئیس روس اتم می‌گوید روسیه تصمیم گرفته است بازگشت کارکنان خود به نیروگاه هسته‌ای بوشهر در ایران را به تعویق بیندازد!
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342316
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342316_1779901398.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Secretary of War Hegseth reveals President Trump ordered the Pentagon to prioritize protecting Nigerian Christians targeted by ISIS — and says the mission quietly led to the killing of ISIS’ second-in-command in Nigeria.
+
+Hegseth says U.S. intelligence gathered during the operation helped lead to the deaths of “hundreds” of ISIS fighters tied to attacks on Christians and threats against the U.S. homeland.
+
+"There's a lot of things we do that the media pays attention to, and a lot of things that the president empowers the Department to do on behalf of the American people, that he deserves great credit for."
+</div>
+
+## pm_afshaa — post 91666
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پیت هگست:آنها ممکن است موشک داشته باشند، اما در حال حاضر نمی‌توانند موشک‌های بیشتری بسازند. نمی‌توانند پهپادهای بیشتری بسازند. نمی‌توانند کشتی‌های بیشتری بسازند. آمدند و تسلیم شدند تا صحبت کنند
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339274
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339274_1779901400.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران‌اینترنشنال می‌گوید به دلیل شرایط موجود از جمله اعدام‌ها و مشکل معیشتی از وصل شدن اینترنت در ایران خوشحال نیست. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## FarsiVOA — post 218818
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_218818_1779901401.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس جمهوری آمریکا در جلسه کابینه با اشاره به این که مقامات حکومت ایران مشتاق رسیدن به توافق هستند از وضعیت فعلی مذاکرات ابراز نارضایتی کرد.
+پرزیدنت ترامپ با بیان اینکه شاید مجبور شویم دوباره به جنگ با رژيم ایران برگردیم گفت: «آنها جز توافق با ما گزینه دیگری ندارند. آنها نمی‌توانند و نخواهند توانست به سلاح هسته‌ای دست پیدا کنند.»
+</div>
+
+## FarsiVOA — post 218817
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218817_1779901402.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حدود ساعت ۱۷ چهارشنبه، ششم خرداد، یکی از برج‌های ۱۶ طبقه‌ای، ۶۴ واحدی، مجتمع مسکونی پامچال در بزرگراه خرازی، شهرک چیتگر دچار آتش‌سوزی شد.
+
+به گفته سخنگوی آتش‌نشانی، آتش که از یکی از واحدهای طبقه هشتم آغاز شده و به سرعت به همه بخش‌ها سرایت کرده بود اکنون خاموش شده و «آتش‌نشانان موفق شدند چند خانواده را از محل حادثه خارج کنند. عملیات جستجو ادامه دارد اما این حادثه تا این لحظه تلفات جانی نداشت.»
+</div>
+
+## IranianMinds — post 20882
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به PBS :
+
+اگه ایران اورانیوم خیلی غنی‌شده رو تحویل بده، در مقابلش هیچ تخفیف یا کاهش تحریم‌ها بهش داده نمیشه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20881
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پیت هگست: آنها ممکن است موشک داشته باشند، اما در حال حاضر نمی‌توانند موشک‌های بیشتری بسازند. نمی‌توانند پهپادهای بیشتری بسازند. نمی‌توانند کشتی‌های بیشتری بسازند. آمدند و تسلیم شدند تا صحبت کنند
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20880
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ثبت نام کن ۵۰۰ هزارتومان جایزه بگیر
+نیازی هم به واریز نیست
+تنها سایت مورد #تایید ما با بونوس های واقعی:
+
+🌐 Winro.io
+</div>
+
+## IranianMinds — post 20879
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20879_1779901405.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ تا حالا بدون واریزی روی فوتبال ها شرط بستی؟!
+
+
+🎉 500 هزارتومن بونوس رایگان فقط با ثبت نام بدون هیچگونه واریزی!
+
+
+💳 شارژ سریع و امن با درگاه ریالی ، تتر یا ترون فقط با یک کلیک!
+
+
+⌛ پشتیبانی 24 ساعته
+
+
+💖تنها سایت مورد اعتماد ما با بونوس های کاملا واقعی و رویایی:
+
+🌐 Winro.io
+
+🌐 Winro.io
+کانال بونوس های رایگان g6
+
+📱 @winro_io
+</div>
+
+## BBCPersian — post 282202
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282202_1779901405.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻پلیس اعلام کرد آتش‌سوزی به‌نسبت بزرگ در سوپرمارکتی در شمال غربی لندن که با اعزام ۱۰۰ آتش‌نشان دارد مهار می‌‌شود، به دلیل اتصال برق بوده است.
+
+آتش‌نشانی لندن اولین تماس را حدود ساعت یک ربع به هفت صبح به وقت گرینویچ دریافت کرد که خبر از آتش‌سوزی در ساختمانی سه طبقه در گولدرز گرین می‌داد.
+
+ویدیوهایی در شبکه‌های اجتماعی منتشر شده که نشان می‌دهد دود از پشت سوپرمارکت یهودی «کوشر کینگدام»، جایی که ساکنان محلی گفته‌اند آتش‌سوزی از آنجا آغاز شده، به هوا بلند می‌شود.
+
+کسی در این آتش‌سوزی مجروح نشده است.
+
+کریگ کارتر، معاون آتش‌نشانی لندن گفت: «تصور نمی‌شود علت آتش‌سوزی مشکوک باشد» و به مردم منطقه توصیه کرد که پنجره‌ها و درها را بسته نگه دارند.
+
+سخنگوی پلیس متروپولیتن هم گفت: «ما نگرانی و اختلالی را که این حادثه برای جامعه محلی و ساکنان و شاغلان در منطقه ایجاد کرده است، درک می‌کنیم. ما می‌خواهیم به ساکنان اطمینان دهیم که هیچ نشانه‌ای از اقدامی هدفمند یا عمدی وجود ندارد.»
+
+گلدرز گرین از جمله محلات یهودی‌نشین لندن است که طی ماه‌های اخیر چند بار هدف حملات ضدیهودی قرار گرفته است.
+
+@BBCPersian
+</div>
+
+## idfinfarsi — post 11657
+
+<div align="center">
+  <a href="telegram/content/idfinfarsi_11657_1779901407.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل ساختمان‌های نظامی، مقرهای فرماندهی و سایت‌های پرتاب در منطقه البقاع را هدف قرار داد: از ابتدای هفته حدود ۵۵۰ هدف از سازمان تروریستی حزب‌الله در لبنان مورد حمله قرار گرفته است
+
+در طول امروز (چهارشنبه)، ارتش اسرائیل در منطقه البقاع و چندین منطقه در جنوب لبنان، ساختمان‌های نظامی، مقرهای فرماندهی و سایت‌های پرتاب مورد استفاده سازمان تروریستی حزب‌الله را هدف قرار داد.
+
+حملات به مقرهای فرماندهی در منطقه صور همچنان در حال انجام است.
+</div>
+
+## alonews — post 123110
+
+<div align="center">
+  <a href="telegram/content/alonews_123110_1779901409.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پیت هگست، وزیر جنگ آمریکا:
+ما توانایی موشکی، دریایی و نظامی ایران را نابود کردیم.
+
+
+🔴ایران ۴۷ سال علیه ما جنگ به راه انداخت.
+
+
+🔴یکی از افتخارات ترامپ ترور قاسم سلیمانی است.
+
+
+🔴اگر در میز مذاکره به نتیجه نرسیم بر
+
+
+🔴 می‌گردیم و کار را تمام خواهیم کرد.
+هم اکنون
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123109
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥 حجم‌های بالا با قیمت‌های باورنکردنی 🔥 ⚡ سرعت بالا 🌐 پایداری عالی 🚀 کیفیتی که حسش میکنی همین الان جوین شو که جا نمونی 😍 @NetAazaadVPN @NetAazaadVPN
+</div>
+
+## alonews — post 123108
+
+<div align="center">
+  <img src="telegram/content/alonews_123108_1779901409.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥 حجم‌های بالا با قیمت‌های باورنکردنی 🔥
+
+⚡ سرعت بالا
+🌐 پایداری عالی
+🚀 کیفیتی که حسش میکنی
+
+همین الان جوین شو که جا نمونی 😍
+
+@NetAazaadVPN
+@NetAazaadVPN
+</div>
+
+## alonews — post 123107
+
+<div align="center">
+  <a href="telegram/content/alonews_123107_1779901410.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش اسرائیل (IDF) کل منطقه جنوب رودخانه زهرانی در لبنان را به عنوان «منطقه جنگی» اعلام کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 20:23
 ---
 
