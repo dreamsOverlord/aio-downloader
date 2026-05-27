@@ -7,6 +7,97 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 09:02
+---
+
+## pm_afshaa — post 91605
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرودگاه بین المللی تبریز فعالیت هاشو بعد 90 روز از سر گرفت
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DW_Farsi — post 125174
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125174_1779859971.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶بازگشایی فرودگاه تبریز همزمان با ۲۴ ساعته شدن ۱۰ فرودگاه در ایران
+
+سازمان هواپیمایی کشوری ایران اعلام کرده فرودگاه بین‌المللی تبریز، پس از آسیب‌دیدگی در جریان جنگ ۱۲ روزه، دوباره بازگشایی شده و از چهارشنبه ۶ خرداد فعالیت خود را از سر می‌گیرد.
+
+مجید اخوان، سخنگوی این سازمان، اعلام کرده است که بخش‌هایی از فرودگاه، از جمله باند پروازی و برج مراقبت، در جریان جنگ آسیب دیده بودند، اما عملیات بازسازی انجام شده و فرودگاه اکنون آماده پذیرش پروازهای داخلی و خارجی است.
+
+هم‌زمان، سازمان هواپیمایی کشوری از ۲۴ ساعته شدن فعالیت ۱۰ فرودگاه کشور، از جمله "مهرآباد، امام خمینی و مشهد" خبر داده است.
+
+فرودگاه بین‌المللی تبریز یکی از مهم‌ترین مراکز هوانوردی شمال‌غرب ایران و از فرودگاه‌های پرتردد کشور به شمار می‌رود. پیش از جنگ، این فرودگاه پروازهایی به چند مقصد داخلی و خارجی، از جمله استانبول، نجف، باکو و دبی داشت.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15099
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15099_1779859972.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حق ++
+
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 122965
+
+<div align="center">
+  <a href="telegram/content/alonews_122965_1779859973.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈انفجار مخزن مواد شیمیایی در ایالت واشنگتن
+
+
+🔴 در پی وقوع حادثه‌ای صنعتی در ایالت واشنگتن آمریکا، دست‌کم 1 نفر جان باخت و 9 کارگر دیگر همچنان مفقود هستند.
+
+
+🔴 این حادثه چهارشنبه در یک کارخانه تولید کاغذ و بسته‌بندی رخ داد و نگرانی‌هایی درباره نشت مواد خطرناک شیمیایی به وجود آورده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122964
+
+<div align="center">
+  <a href="telegram/content/alonews_122964_1779859974.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پهپادهای اوکراینی پایگاه هوایی تگانرونگ در روسیه را هدف قرار دادند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122963
+
+<div align="center">
+  <a href="telegram/content/alonews_122963_1779859974.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصویر روز رویترز از کشتی های پهلو گرفته در نزدیکی تنگه هرمز، سمت ساحل عمان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 08:52
 ---
 
