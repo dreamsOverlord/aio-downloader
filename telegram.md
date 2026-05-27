@@ -7,6 +7,36 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 00:43
+---
+
+## WithYashar — post 12742
+
+<div align="center">
+  <a href="telegram/content/WithYashar_12742_1779916389.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️ حتما با پوشک بسته نگاه کنید⚠️
+میگن سیلوستر استالونه بعد از دیدن این ویدیو فروش آنلاین تمام فیلمهای رامبو رو متوقف کرد.
+@withyashar
+</div>
+
+## alonews — post 123182
+
+<div align="center">
+  <a href="telegram/content/alonews_123182_1779916391.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈لحظه شکست دادن نفر اول شطرنج جهان توسط علیرضا فیروزجا
+
+
+🔴علیرضا نخبه ایرانی مدتی قبل به دلیل مسائل سیاسی از ایران خارج و به فرانسه پناهنده شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 00:32
 ---
 
