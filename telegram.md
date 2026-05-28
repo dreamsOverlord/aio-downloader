@@ -7,6 +7,208 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 21:33
+---
+
+## VahidOOnLine — post 242640
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242640_1779991421.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو در مصاحبه‌ای در کنفرانس «بیکعات هاردن» اعلام کرد: «در روز اول یا دوم جنگ گفتم چهره خاورمیانه را تغییر خواهیم داد. از همان ابتدا روشن بود که فقط با حماس و حزب‌الله روبه‌رو نیستیم، بلکه محور جمهوری اسلامی پشت آن‌ها قرار دارد.»
+
+نتانیاهو افزود: «ما نیاز به تغییر داشتیم. برای من روشن بود که دوران تحمل و جذب ضربه به پایان رسیده است. دیگر ضربه را تحمل نمی‌کنیم؛ از حالت دفاعی خارج می‌شویم و یکی‌یکی به آن‌ها ضربه می‌زنیم.»
+
+او ادامه داد: «ما هرگز در چنین فاصله‌هایی، با چنین تداومی و با چنین شدتی در آسمان تهران عملیات انجام نداده بودیم. در آسمان یمن هم با چنین شدتی عمل نکرده بودیم.»
+
+نتانیاهو گفت: «ضربات بسیار سنگینی به آن‌ها وارد کرده‌ایم و هرگز تا این اندازه قوی نبوده‌ایم. اما همچنان با رژیم آسیب‌دیده ایران روبه‌رو هستیم و تهدید هسته‌ای هنوز وجود دارد.»
+
+او افزود: «هنوز باید کار را کامل کنیم. من تقریبا هر روز با رییس‌جمهور ترامپ صحبت می‌کنم. علاوه بر خنثی‌سازی تهدید هسته‌ای، باید تهدیدی را که می‌توان آن را فوق‌فناورانه دانست نیز مهار کنیم؛ یعنی تهدید پهپادها، پهپادهای فیبر نوری و نسل بعدی آن‌ها.»
+h
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342354
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Bahamian government approves US sending dive team to search new area in Lynette Hooker's disappearance, US official familiar with the investigation tells Fox News Digital
+</div>
+
+## pm_afshaa — post 91758
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پروکسی پروکسی 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91757
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://e258977b-e413-4718-a3af-02d75492c349@50.62.198.124:443?encryption=none&security=tls&sni=jp.aniua.qzz.io&type=ws&host=jp.aniua.qzz.io&path=%2F#PMTV%20NEWS%20%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+سرور مخصوص دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## iaghapour — post 2641
+
+<div align="center">
+  <img src="telegram/content/iaghapour_2641_1779991421.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همه‌چی قرار نیست وایرال باشه.
+بعضی موزیکارو فقط باید پیداشون کنی.
+اینجا همون‌جاست؛
+ریمیکس، کلیپ، ادیت و ترکایی با وایب متفاوت.
+برای آدمایی که سلیقه‌شون معمولی نیست.👇
+
+⏩ 𝗡𝗢𝗫𝗕𝗘𝗔𝗧 
+✅
+</div>
+
+## DEJradio — post 5078
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5078_1779991422.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 خبر ۲۱
+پنجشنبه ۷ خرداد ۱۴۰۵
+
+#خبر۲۱
+@DEJradio
+</div>
+
+## IranIntlTV — post 339453
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339453_1779991424.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو در مصاحبه‌ای در کنفرانس «بیکعات هاردن» اعلام کرد: «در روز اول یا دوم جنگ گفتم چهره خاورمیانه را تغییر خواهیم داد. از همان ابتدا روشن بود که فقط با حماس و حزب‌الله روبه‌رو نیستیم، بلکه محور جمهوری اسلامی پشت آن‌ها قرار دارد.»
+
+نتانیاهو افزود: «ما نیاز به تغییر داشتیم. برای من روشن بود که دوران تحمل و جذب ضربه به پایان رسیده است. دیگر ضربه را تحمل نمی‌کنیم؛ از حالت دفاعی خارج می‌شویم و یکی‌یکی به آن‌ها ضربه می‌زنیم.»
+
+او ادامه داد: «ما هرگز در چنین فاصله‌هایی، با چنین تداومی و با چنین شدتی در آسمان تهران عملیات انجام نداده بودیم. در آسمان یمن هم با چنین شدتی عمل نکرده بودیم.»
+
+نتانیاهو گفت: «ضربات بسیار سنگینی به آن‌ها وارد کرده‌ایم و هرگز تا این اندازه قوی نبوده‌ایم. اما همچنان با رژیم آسیب‌دیده ایران روبه‌رو هستیم و تهدید هسته‌ای هنوز وجود دارد.»
+
+او افزود: «هنوز باید کار را کامل کنیم. من تقریبا هر روز با رییس‌جمهور ترامپ صحبت می‌کنم. علاوه بر خنثی‌سازی تهدید هسته‌ای، باید تهدیدی را که می‌توان آن را فوق‌فناورانه دانست نیز مهار کنیم؛ یعنی تهدید پهپادها، پهپادهای فیبر نوری و نسل بعدی آن‌ها.»
+h
+</div>
+
+## FarsiVOA — post 218906
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اختلال در استفاده از کارت سوخت شهروندان ایرانی
+</div>
+
+## Dirty_Kids — post 390418
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390418_1779991424.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برای اونایی که نبودن:
+۹ تا ویدیو از مجموع پربازدیدترین شادی‌های ایرانیان سراسر جهان در روزهای پس از هلاکت #خامنه‌ای رو براتون جمع کردم
+
+۱. رقص ترامپ
+۲. چهل روز عزای عمومی این طوری شروع شد. 😂🥳💃🏻✌🏻
+🇮🇷
+۳. چشمو دل ما روشن، خامنه‌ای turns to یه بقچه عن! 😂
+۴. شادی ناب هم‌وطنان در گوشهٔ دنیا، #سیدنی استرالیا.
+۵. خامنه‌ای مررررررد. 🥹💃🏻
+🇮🇷✌🏻
+۶. دانشجوها، هم‌خونه‌های دوران دانشگاه، دورهمیا و همه و همه در جشن مرگ پیر خرفت سر از پا نمی‌شناختن. 🥹🥳
+🇮🇷✌🏻
+۷. رستوران‌های ایرانی سنگ تموم گذاشتن. 😂🥳🕺🏻💃🏻
+۸. هم‌وطنان سببی هم در شادی‌مون شریک بودند. 😂❤️
+۹. هر کس هر کجا که بود می‌رقصید. 🥹
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390416
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390416_1779991425.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 امروز تولد عموی آگاه و دانشمندم «مارک‌روبیوی» عزیز، این محمدعلی فروغی زمانه‌ی آمریکایی‌هاست،
+
+حساب وزارت خارجه آمریکا تو توییتر با این ویدیو تولدشو تبریک گفته.
+
+اعضای دولت ترامپ هم با کیک تولد برای روبیو تولد گرفتن
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 123352
+
+<div align="center">
+  <a href="telegram/content/alonews_123352_1779991426.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈لحظه نابودی پایگاه هوایی بندرعباس توسط بمب‌های فوق سنگین 2.2 تنی GBU-72 که توسط بمب افکن استراتژیک سنگین B-1B نیروی هوایی آمریکا در این حمله استفاده شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123351
+
+<div align="center">
+  <a href="telegram/content/alonews_123351_1779991427.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سازمان ملل: در مورد تبادل آتش بین ایران و آمریکا در روزهای اخیر به شدت نگرانیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123350
+
+<div align="center">
+  <a href="telegram/content/alonews_123350_1779991427.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه ان‌بی‌سی ادعا کرد: مذاکره‌کنندگان آمریکایی و ایرانی سه روز پیش در دوحه بر سر شرایط توافق آتش‌بس به توافق رسیدند، اما هر دو طرف در اعلام نهایی آن تأخیر می‌کنند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123349
+
+<div align="center">
+  <a href="telegram/content/alonews_123349_1779991427.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 شبکه CNN به نقل از تصاویر ماهواره‌ای: ایران با استفاده از بلدوزر و کامیون، در حال بازگشایی تأسیسات زیرزمینی موشکی و بیرون کشیدن زرادخانه عظیم خود است که ادعاهای ترامپ مبنی بر نابودی آن را زیر سؤال می‌برد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 21:24
 ---
 
