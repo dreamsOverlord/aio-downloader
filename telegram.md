@@ -7,6 +7,25 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 07:12
+---
+
+## FoxNewsTwitter — post 342335
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342335_1779939756.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: VP Vance and Second Lady Usha Vance deboard from Air Force Two.
+
+The vice president will speak at the United States Air Force Academy's 68th graduation ceremony on Thursday.
+
+Hundreds of cadets will be commissioned as officers during the ceremony, and the Air Force Thunderbirds are scheduled to perform a flyover, the U.S. Air Force Academy says.
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 07:03
 ---
 
