@@ -7,6 +7,181 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 21:03
+---
+
+## VahidOOnLine — post 242635
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242635_1779989604.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، با تمجید از عملکرد نیروهای آمریکایی در دو عملیات «خشم حماسی» و «چکش نیمه‌شب» گفت ارتش ایالات متحده در شرایط واقعی جنگی ماموریت‌هایی را انجام داده که بسیاری آن را «غیرممکن» می‌دانستند.
+ونس با اشاره به سقوط دو خلبان آمریکایی در ایران گفت در ساعات اولیه، محل دقیق آن‌ها مشخص نبود و تنها حدود یک روز بعد، نیروهای آمریکایی موفق شدند از طریق چراغ‌های اضطراری، موقعیت هر دو خدمه را شناسایی کنند.
+او افزود مدتی نگرانی جدی درباره زنده بودن یکی از خلبانان وجود داشت، اما بعدا مشخص شد او زنده مانده و در پشت خطوط دشمن گرفتار شده است.
+به گفته معاون رئیس‌جمهور آمریکا، نیروی هوایی این کشور با اعزام هواپیماها به مناطقی که تصور می‌شد امکان فرود در آن‌ها وجود ندارد و همچنین آماده‌سازی بالگردها در همان مناطق، موفق شد یکی از خلبانان را از داخل خاک ایران و پشت خطوط دشمن خارج کند.
+ونس این عملیات را یکی از «جسورانه‌ترین صحنه‌هایی» توصیف کرد که در طول عمر خود دیده است و گفت نیروهای آمریکایی در این ماموریت توانستند توان عملیاتی و هماهنگی خود را در سطحی بی‌سابقه به نمایش بگذارند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342353
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342353_1779989604.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: The U.S. and Iran have agreed to the framework of a 60-day ceasefire deal, now awaiting final sign-off from President Trump and Iran’s Supreme Leader.
+
+Negotiators are still hashing out some of the biggest sticking points, including what happens to Iran’s highly enriched uranium stockpile and restrictions tied to nuclear weapons development.
+
+Iran has previously pulled back from the table over these exact U.S. red lines, raising questions about how durable any agreement could actually be.
+
+@TreyYingst breaks down what would be considered a ceasefire violation as the deal moves closer to final approval.
+</div>
+
+## pm_afshaa — post 91751
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ss://MjAyMi1ibGFrZTMtYWVzLTI1Ni1nY206aWhRWmVvUlZVU1ovUzlwZFUvclRvSTV1V3Rld2xTdDJMT21NeDk1NS9LST06MXBsWjA5Zm01a1FtMFNHSDNXNURuazJibEtWRGZwRi83cm02NHRpUHc3TT0=@188.213.197.232:29691#PMTV%20NEWS%20%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+نپسترنت مخصوص اینستا و دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91750
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=ams1.tlgfast.com&port=443&secret=083fe0c452e2407d835537872f097c54
+
+پروکسی متصل سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91749
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=a.artishchev.org&port=8443&secret=963a7fd525b04c4533ce776c9bd70f34
+
+پروکسی متصل مخصوصا دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339451
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339451_1779989606.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این گزارش به قطع ۸۸ روزه اینترنت از سوی جمهوری اسلامی می‌پردازد؛ اقدامی که به یک محاصره دیجیتال علیه مردم تبدیل شد، میلیاردها دلار خسارت بر جای گذاشت و ارتباط ایرانیان با جهان، کسب‌وکار، آموزش و حق دسترسی به حقیقت را مسدود کرد.
+
+آرین ریسباف گزارش می‌دهد.
+@iranintltv
+</div>
+
+## FarsiVOA — post 218904
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺گزارش | اعترافات اجباری، ابهام‌ها، و ناگفته‌ها؛ نگاهی به اعدام عباس اکبری فیض‌آبادی
+
+▪️عباس اکبری فیض‌آبادی، از معترضان بازداشت‌شده در شهرستان نائین در جریان اعتراضات دی ۱۴۰۴، روز ۴ خرداد ۱۴۰۵ اعدام شد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/forced-confession-protesters-abbas-akbari-feizabadi-execution/8154864.html/?nocach=1
+</div>
+
+## RadioFarda — post 157670
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157670" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آیا ایران سامانه پدافندی «مجید» را به ارمنستان صادر کرده است؟
+
+🔸در رژه نظامی روز ۲۵ مه در ایروان پایتخت ارمنستان، یکی از تجهیزات به نمایش درآمده، کنجکاوی‌ها را برانگیخت. یک سامانه پدافندی، مشابه سامانه ارتفاع پست «مجید» در ایران که ارمنستان آن را سامانه «عقرب» معرفی کرده است. این تصویر بار دیگر سوال‌هایی را درباره همکاری‌های دفاعی تهران و ایروان را به میان کشید و این سوال مطرح شد که آیا در راستای این همکاری‌ها ایران سامانه پدافندی مجید خود را به ارمنستان صادر کرده است؟ سیروس عامریان، تحلیلگر نظامی ساکن ولینگتون در نیوزیلند، ارزیابی خود را از این تصاویر و مقایسه با سامانه مجید بیان کرده است.
+
+@RadioFarda
+</div>
+
+## Dirty_Kids — post 390415
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390415_1779989608.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعد من یه بار به دوس‌دخترم گفتم فلان رفتارت ناراحتم کرد برگشت بهم گفت این رابطه تحمل دو تا پرنسسو نداره کات.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390414
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئیس کارتل مواد مخدر مکزیک کادر تیم ملی رو تهدید کرده
+
+لیاقت شما ویزای ۵ ساعته‌س
+شما لیاقت پاسپورت شاهنشاهی نداشتین
+
+حمله کنه اینارو بدزدن آی بخندمممممممم آی بخندممممممم 😂😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113214
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+معوقات مزدی کارگران شرکت فولاد مکران چابهار
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– شماری از #کارگران شاغل در شرکت فولاد مکران چابهار از عدم پرداخت مطالبات مزدی خود ابراز نارضایتی کرده و خواستار رسیدگی به وضعیتشان شدند.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 123346
+
+<div align="center">
+  <a href="telegram/content/alonews_123346_1779989608.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نخبگان عمانی در واکنش به تهدید ترامپ: عمان باج نخواهد داد، این تهدیدات نشانه قلدرمآبی و شکست ترامپ در منطقه است و ما در موضع ثابت خود در قبال جنگ علیه ایران باقی می‌مانیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 20:53
 ---
 
