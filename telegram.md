@@ -7,6 +7,61 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 05:22
+---
+
+## Shin_Persian — post 6267
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 28 May 2026 01:49:46 UTC
+
+Treasury's Economic Fury campaign targets Iran's Persian Gulf Strait Authority (PGSA), a new IRGC extortion scheme charging illegitimate "tolls" for vessels transiting the Strait of Hormuz.
+
+𝐃𝐄𝐒𝐈𝐆𝐍𝐀𝐓𝐄𝐃 𝐄𝐍𝐓𝐈𝐓𝐘:
+
+• 𝐏𝐞𝐫𝐬𝐢𝐚𝐧 𝐆𝐮𝐥𝐟 𝐒𝐭𝐫𝐚𝐢𝐭 𝐀𝐮𝐭𝐡𝐨𝐫𝐢𝐭𝐲 (𝐏𝐆𝐒𝐀) - Iranian government agency that coordinates with IRGC and IRGC Navy to extort commercial vessels through forced route compliance, information submission requirements, and passage fees that fund the designated Foreign Terrorist Organization IRGC.
+
+𝐊𝐄𝐘 𝐎𝐏𝐄𝐑𝐀𝐓𝐈𝐎𝐍𝐀𝐋 𝐃𝐄𝐓𝐀𝐈𝐋𝐒:
+
+- Vessels must submit requested information to receive "permission" from PGSA to transit the Strait of Hormuz
+- PGSA forces vessels to follow Iranian-designated routes near Iran's coast under IRGC instructions
+- Extortion payments accepted via fiat currency, digital assets, offsets, informal swaps, or in-kind payments including nominally charitable donations
+- All toll revenues are funneled directly to the IRGC
+
+𝐄𝐂𝐎𝐍𝐎𝐌𝐈𝐂 𝐅𝐔𝐑𝐘 𝐂𝐀𝐌𝐏𝐀𝐈𝐆𝐍 𝐈𝐌𝐏𝐀𝐂𝐓:
+
+- Treasury has disrupted tens of billions of dollars in Iranian regime revenue
+- Nearly $500 million in regime-linked cryptocurrency frozen
+- Targeted shadow banking networks, weapons supply chains, and shadow fleet operations
+- Secondary sanctions risk for foreign financial institutions facilitating Iranian activities
+
+𝐒𝐀𝐍𝐂𝐓𝐈𝐎𝐍𝐒 𝐈𝐌𝐏𝐋𝐈𝐂𝐀𝐓𝐈𝐎𝐍𝐒:
+
+- Designated under E.O. 13224 for materially assisting the IRGC
+- All U.S. persons prohibited from transactions involving PGSA
+- Foreign entities cooperating with the strait authority face sanctions exposure
+- Secondary sanctions possible for foreign financial institutions conducting significant transactions with PGSA
+- Violations may result in civil or criminal penalties on strict liability basis
+
+𝐂𝐎𝐌𝐏𝐋𝐈𝐀𝐍𝐂𝐄 𝐖𝐀𝐑𝐍𝐈𝐍𝐆:
+
+Any cooperation with the Persian Gulf Strait Authority may constitute providing support to the IRGC and expose parties to U.S. sanctions risk, regardless of payment method or justification.
+
+ترجمه فارسی در بخش نظرات
+
+𝕏 · @shin_persian
+</div>
+
+## BBCPersian — post 282223
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻گزارش‌های مردمی و رسانه‌های داخل ایران از شنیدن صدای دست کم سه انفجار در ساعات اولیه بامداد پنجشنبه در شرق بندرعباس حکایت دارد. خبرگزاری فارس، بامداد پنجشنبه نوشت: «حوالی ساعت ۱:۳۰ بامداد صدای ۳ انفجار از شرق شهر بندرعباس شنیده شد. هنوز محل دقیق و منشأ این…
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 05:12
 ---
 
