@@ -7,6 +7,264 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 23:53
+---
+
+## VahidOOnLine — post 242658
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242658_1779999795.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وب‌سایت وزارت خزانه‌داری آمریکا اعلام کرد تحریم‌های جدیدی مرتبط با جمهوری اسلامی اعمال شده است.
+
+این وزارتخانه اعلام کرد ۱۷ شرکت را به دلیل ارتباط با شبکه‌های وابسته به جمهوری اسلامی و شرکت «سپهر انرژی جهان‌نما پارس» که در حوزه نفت و پتروشیمی فعالیت می‌کرده، در فهرست تحریم قرار داده است. شرکت سپهر انرژی پیش‌تر نیز در لیست تحریم‌های آمریکا بوده است.
+
+همچنین هشت کشتی و نفتکش نیز در فهرست تحریم‌های جدید قرار گرفته‌اند. این کشتی‌ها با پرچم کشورهایی از جمله جزایر مارشال، پاناما، کامرون و سان‌مارینو فعالیت می‌کنند و با شرکت‌های تحریم‌شده مرتبط هستند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12827
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره ایران: آنها مذاکره‌کنندگان بسیار خوبی هستند آنها زیرک‌اند اما ما همه کارت‌ها را در دست داریم، چون آنها را از نظر نظامی شکست داده‌ایم.
+@withyashar
+</div>
+
+## WithYashar — post 12826
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12826_1779999796.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه CNN: تصاویر ماهواره ای نشان میدهد ایران به سرعت در حال بیرون کشیدن زرادخانه موشکی عظیم خود از زیرِ زمین است.
+@withyashar
+</div>
+
+## WithYashar — post 12825
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویو از کانال میلیونی ‌بیشتره، ری اکشن از کانال پوشاک زیر کمتر 😕 بد میگین ما ایرانیم چه کاری ازمون برم یاد بکنیم برات !!! خوب اسمت که نمی افته کاملا مخفیه همه پستا و ری اکشن بده دست آدم به کار بره…
+</div>
+
+## pm_afshaa — post 91790
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://c575c0fd-4833-4cba-937d-2342fd32544b@104.17.121.71:443?encryption=none&security=tls&sni=de.vpncustomize.cc.cd&alpn=h2%2Chttp%2F1.1&fp=chrome&type=tcp&headerType=none#PMTV%20NEWS%20%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+نامحدود سرعت بالا مخصوص اینستا و دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91789
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://478cc26d-16b3-4fdd-be64-60d5a58c1622@162.159.36.5:80?path=%2F&security=none&encryption=none&host=tt.andishehparenting.com&type=ws#PMTV%20NEWS%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+نامحدود سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91788
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=87.248.129.210&port=4455&secret=ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339472
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339472_1779999796.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسرین ستوده، وکیل و فعال حقوق بشر، گفت پس از بازداشت توسط ماموران وزارت اطلاعات، در بازداشتگاه این نهاد مورد ضرب و جرح قرار گرفته است.
+
+او همچنین شرایط بازداشتگاه را غیرانسانی توصیف کرد.
+
+گفت‌وگو با رقیه رضایی، روزنامه‌نگار
+@iranintltv
+</div>
+
+## IranIntlTV — post 339471
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339471_1779999798.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وب‌سایت وزارت خزانه‌داری آمریکا اعلام کرد تحریم‌های جدیدی مرتبط با جمهوری اسلامی اعمال شده است.
+
+این وزارتخانه اعلام کرد ۱۷ شرکت را به دلیل ارتباط با شبکه‌های وابسته به جمهوری اسلامی و شرکت «سپهر انرژی جهان‌نما پارس» که در حوزه نفت و پتروشیمی فعالیت می‌کرده، در فهرست تحریم قرار داده است. شرکت سپهر انرژی پیش‌تر نیز در لیست تحریم‌های آمریکا بوده است.
+
+همچنین هشت کشتی و نفتکش نیز در فهرست تحریم‌های جدید قرار گرفته‌اند. این کشتی‌ها با پرچم کشورهایی از جمله جزایر مارشال، پاناما، کامرون و سان‌مارینو فعالیت می‌کنند و با شرکت‌های تحریم‌شده مرتبط هستند.
+https://iranintl.com/202605287485
+</div>
+
+## IranIntlTV — post 339470
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاخ سفید اعلام کرد واشینگتن و تهران بر سر یک یادداشت تفاهم ۶۰ روزه برای تمدید آتش‌بس و آغاز مذاکرات هسته‌ای به توافق اولیه رسیده‌اند، اما دونالد ترامپ هنوز آن را تایید نهایی نکرده است.
+
+همزمان، وزیر خزانه‌داری آمریکا گفت مذاکرات ادامه دارد و ترامپ بر توقف غنی‌سازی اورانیوم و جلوگیری از دستیابی ایران به سلاح هسته‌ای به‌عنوان خطوط قرمز تاکید دارد.
+
+گفت‌وگو با میعاد ملکی، رییس پیشین دفتر هدف‌گذاری تحریم‌های وزارت خزانه‌داری آمریکا
+@iranintltv
+</div>
+
+## FarsiVOA — post 218922
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218922_1779999799.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نرگس صبا در برنامه تفسیر خبر پیشینه تولید پهپاد در جمهوری اسلامی بررسی می‌کند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218921
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218921_1779999800.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️رضا طالبی در برنامه تفسیر خبر: شکاف‌ها در جمهوری اسلامی کنترل شده است
+@FarsiVOA
+</div>
+
+## RadioFarda — post 157673
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157673_1779999801.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸در پی انتشار گزارش‌هایی درباره شنیدن صدای انفجار و شلیک در جنوب ایران، رسانه‌های نزدیک به سپاه پاسداران شامگاه پنجشنبه از شلیک به سمت برخی شناورها در تنگه هرمز خبر دادند.
+
+🔸خبرگزاری فارس مدعی شد که «نیروهای مسلح ایران از مناطق جنوبی کشور به سمت اهداف مشخص عملیات شلیک موشک را اجرایی کردند».
+
+🔸این خبرگزاری نزدیک به سپاه گفت که «مقصد دقیق» این موشک‌ها مشخص نیست.
+
+🔸پیش‌تر گزارش‌های منتشر شده در شبکه‌های اجتماعی از شنیده شدن صدای انفجار در برخی نقاط استان‌های بوشهر و هرمزگان حکایت داشت.
+
+🔸خبرگزاری تسنیم، دیگر رسانه نزدیک به سپاه می‌گوید منشا این صداهایی به «درگیری‌های نظامی در دریا» ارتباط دارد.
+
+🔸این خبرگزاری در ادامه به نقل از «مرکز کنترل فرماندهی پدافند هوایی ارتش» اعلام کرد که انفجارها «از سمت دریا و مربوط به تبادل آتش در اخطار به کشتی‌های متخلف در تنگه هرمز بوده است».
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 282284
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282284_1779999801.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+مدیرعامل شرکت ارتباطات زیرساخت ایران از روند افزایشی ترافیک بین‌الملل اینترنت خبر داد اما گفت که بهبود کیفیت آن چند روز زمان می برد.
+
+به گزارش ایرنا، بهزاد اکبری می‌گوید که بهبود کیفیت سرویس‌ها و بازگشت ترافیک بین‌الملل به دلیل طولانی شدن قطعی‌ اینترنت چند روز طول می‌کشد.
+
+ایرنا به نقل از کارشناسان گزارش داد که فرآیند اینترنت باید تدریجی باشد تا از از آلودگی شبکه به انواع ویروس‌ها و بدافزارها جلوگیری شود.
+
+بعد از چند ماه قطعی اینترنت در ایران در پی جنگ آمریکا و اسرائیل با ایران، دو روز پیش اینترنت در ایران به طور نسبی وصل شد و به‌صورت جزئی در حال بازگشت است.
+
+پیش از این دولت مسعود پزشکیان چند بار خواستار برقراری مجدد اینترنت شده و تاکید کرده بود که قطعی اینترنت موجب ضربه به حوزه علمی کشور و خسارات اقتصادی می‌شود و مستقیم و غیرمستقیم بر کسب و کارها تاثیر می‌گذارد.
+
+https://bbc.in/4vg4Fjo
+📷Reuters
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390432
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390432_1779999802.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی اصلی خامنه‌ای اینه 👆
+اونی که قبلن پخش شده فیک بوده
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390431
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390431_1779999803.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آقایی غیرتی:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390430
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت رو یه جوری ریدن توش که هیچ راهی جز خریدن استارلینک از محل درامد کشت خشخاش برامون نذاشتن.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 123387
+
+<div align="center">
+  <a href="telegram/content/alonews_123387_1779999803.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ درباره ایران: آنها مذاکره‌کنندگان بسیار خوبی هستند — آنها زیرک‌اند — اما ما همه کارت‌ها را در دست داریم، چون آنها را از نظر نظامی شکست داده‌ایم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123386
+
+<div align="center">
+  <a href="telegram/content/alonews_123386_1779999804.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون حملات سنگین هوایی اسرائیل به غزه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123385
+
+<div align="center">
+  <a href="telegram/content/alonews_123385_1779999805.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تسنیم: گزارش منابع محلی حاکیست که منشا صداهایی که شنیده شده به درگیری‌های نظامی در دریا برمی‌گردد 
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 23:43
 ---
 
