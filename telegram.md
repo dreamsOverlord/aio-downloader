@@ -7,6 +7,169 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 17:13
+---
+
+## VahidOOnLine — post 242604
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242604_1779975835.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️یک آژانس کشتیرانی اعلام کرد که سه نفتکش در دریای سیاه مورد حمله پهپادی قرار گرفته‌اند.
+
+به گزارش رویترز، آژانس کشتیرانی ترایبکا اعلام کرد که روز پنجشنبه حملات پهپادی به سه نفتکش در دریای سیاه در نزدیکی ساحل شمالی ترکیه گزارش شده است.
+
+به گفته این آژانس، نفتکش جیمز ۲ که با پرچم پالائو و در حال تعادل حرکت می‌کرد، در زمان وقوع حادثه در حدود ۸۰ کیلومتری شمال منطقه تورکلی در دریای سیاه بود.
+
+این آژانس اعلام کرد که قایق‌های ایمنی ساحلی برای کمک به محل حادثه اعزام شدند و همه خدمه نفتکش‌ها در وضعیت خوبی گزارش شده‌اند.
+
+مسکو و کی‌یف از زمان حمله همه جانبه روسیه به اوکراین بیش از چهار سال پیش، بارها به بنادر و نفتکش‌های یکدیگر حمله کرده‌اند. هیچ یک از این دو کشور بلافاصله مسئولیت حمله جدید گزارش شده را بر عهده نگرفتند.
+
+وزارت حمل و نقل ترکیه به دلیل تعطیلات عید قربان، برای اظهار نظر در مورد این حوادث در دسترس نبود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12792
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابوترابی، نماینده مجلس: آمریکا بعد از جام جهانی و انتخابات کنگره دوباره حمله می‌کند
+@withyashar
+</div>
+
+## WithYashar — post 12791
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سیتنا: تا الان تمرکز ۹۱ درصدی ترافیک اینترنت تو تهران بوده و بازگشت توزیع عادی پهنای باند، زمان‌بره.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342344
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342344_1779975835.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The search is on for the next James Bond, and there’s reportedly a new favorite to take over the role of Agent 007, so that begs the question – who will play the next Bond girl?
+
+Our sponsor Kalshi's prediction market shows it's between Zendaya, Anya Taylor-Joy, Sydney Sweeney, and Margaret Qualley.
+
+Find out 👇
+
+@foxandfriends
+</div>
+
+## IranIntlTV — post 339415
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339415_1779975837.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻نائومی اوساکا، تنیسور مطرح ژاپنی در دور دوم مسابقات آزاد فرانسه با لباسی نمادین وارد زمین مسابقه شد. ستاره ژاپنی با کت طلایی، لباس پولک‌دوزی‌شده و دنباله‌ای عاجی‌رنگ وارد زمین شد.
+اوساکا بعد از صعود به دور سوم گفت دوست دارد مردم را غافلگیر کند و از این‌که لباس‌هایش در زمین تنیس به بخشی از هویت او تبدیل شده لذت می‌برد.
+
+🔹او در مسابقه نخستش هم با دامنی مشکی و لباسی الهام‌گرفته از نورپردازی برج ایفل وارد زمین شد.
+
+🔹او در این زمینه گفت: «ورزشکارها هم بخشی از دنیای سرگرمی هستند. وقتی به زمین مسابقات گرنداسلم‌ها پای می‌گذارم، واقعاً احساس می‌کنم یک هنرمند هستم.»
+
+🔹با این حال، استایل‌های ویژه اوساکا با انتقاد هم روبه‌رو شده است. لورا زیگموند، حریف آلمانی او در دور اول، گفت مشکلی با لباس‌های اوساکا ندارد اما معتقد است نوع برخورد با ستاره‌های بزرگ در دنیای تنیس متفاوت است و بازیکنان معمولی مثل آنها آزادی عمل ندارند.
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 218887
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218887_1779975837.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنا بر گزارش‌ها، ارتش اسرائیل طی ۲۴ ساعت گذشته بیش از ۱۳۵ هدف وابسته به حزب‌الله را در صور، دره بقاع و جنوب لبنان هدف قرار داده است.
+
+ویدیوی منتشر شده همچنین حمله به گروهی را نشان می‌دهد که به گفته اسرائیل پس از خروج از یک محل پرتاب در شهر صور هدف قرار گرفتند.
+
+@FarsiVOA
+</div>
+
+## IranianMinds — post 20949
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20949_1779975838.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بنیامین نتانیاهو :
+
+دستور گسترش عملیات زمینی رو دادم ، ما امروز از رودخانه لیتانی در جنوب لبنان هم عبور کردیم و عملیات نابودی حزب الله با قدرت ادامه داره.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282272
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/282272" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻 تازه‌ترین خبرهای جهان پنج‌شنبه ۷ خرداد ۱۴۰۵ از رادیو بی‌بی‌سی در لندن
+@BBCPersian
+</div>
+
+## BBCPersian — post 282271
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻وزیر خارجه پاکستان برای یک دیدار رسمی به واشنگتن می‌رود
+
+
+محمد اسحاق دار، معاون نخست‌وزیر و وزیر خارجه پاکستان در پایان سفرش به آمریکا برای دیدار رسمی فردا، جمعه هشتم خرداد ماه به واشنگتن می‌رود.
+
+وزارت خارجه پاکستان در یک بیانیه اعلام کرد که آقای اسحاق دار که برای شرکت در جلسه شورای امنیت سازمان ملل به نیویورک سفر کرده است،‌ فردا در واشنگتن با مارکو روبیو، وزیر خارجه آمریکا دیدار و گفت‌وگو خواهد کرد.
+
+پاکستان میانجی رسمی میان آمریکا و ایران در جریان مذاکرات اخیر دو کشور برای برقراری صلح است.
+
+در بیانیه وزارت خارجه پاکستان آمده است که مستحکم‌کردن همکاری بین دو کشور پاکستان و آمریکا در مسائل مهم روز از جمله تلاش‌های پاکستان برای برقراری صلح و ثبات در منطقه از طریق گفت‌وگو و دیپلماسی،‌ از محورهای سفر آقای اسحاق‌دار به واشنگتن خواهد بود.
+
+@BBCPersian
+</div>
+
+## Hranews — post 113211
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک زن در دماوند توسط همسرش به قتل رسید
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– روز سه شنبه ۵ خردادماه، مردی در دماوند، همسر خود را به دلیل اختلافات خانوادگی به #قتل رساند. متهم توسط ماموران پلیس بازداشت شده است.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 123304
+
+<div align="center">
+  <a href="telegram/content/alonews_123304_1779975839.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرماندهی مرکزی ایالات متحده درباره محاصره:
+نیروهای آمریکایی اکنون ۱۱۱ کشتی تجاری را برای اطمینان از رعایت قوانین هدایت کرده‌اند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 17:03
 ---
 
