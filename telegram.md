@@ -7,6 +7,140 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 16:33
+---
+
+## VahidOOnLine — post 242599
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از زندگی در آتش‌بس- پنجشنبه ۷ خرداد
+
+🔹می‌خواستم بگم برخلاف خیلی‌ها که از ترامپ و نتانیاهو ناراحت هستن، من برعکس خیلی‌ها ازشون تشکر می‌کنم که تا همین‌جا هم واقعاً کارهای بزرگی انجام دادن. تغییر در رژیم یک رونده و مردم هم به‌هرحال باید این سختی‌ها رو تحمل کنن به امید روزی که نجات پیدا کنیم.
+🔹به‌وقتش خود ما می‌جنگیم، می‌میریم و در نهایت ما ایران رو پس می‌گیریم. درسته میگیم تا کی دیگه باید تاوان بدیم، ولی اینم می‌دونیم که آزادی به دست خودمون رقم می‌خوره.
+🔹اینجا همه‌چیز داره از هم می‌پاشه؛ زندگی‌ها، کارها، پیوندها، تندرستی، سلامت روان، بهداشت، خوراک و پوشاک. تنها چیزی که ما رو سرپا نگه داشته، دیدن راهپیمایی ایرانیان خارج از کشور در ماهواره و تصور روز آزادیه.
+🔹دوستان عزیز یادتون نره که این حکومت در دی‌ماه ۱۴۰۴ چه جنایاتی انجام داد. صرفا چون اینترنت رو وصل کردن نپرید بغل آخوند. این اینترنت حق ماست، پس برای گرفتن حقتون از این ستمگران سپاسگزار نباشید.
+🔹اکثریت ما با جمهوری اسلامی مخالفیم و کار آخر رو باید خودمون انجام بدیم.
+🔹در طول تاریخ، دیکتاتورها تا لحظه آخر شاخ و شونه می‌کشن و در نهایت به فجیع‌ترین حالت ممکن سقوط می‌کنن. ما برای آزادی بهای سنگینی دادیم؛ چه دی‌ماه و چه قبل از اون، پس صبور باشید و امیدوار.
+🔹امروز وصل شدم و خواستم بگم ما در ۱۸ و ۱۹ دی شکوهی از حجم جمعیت و صدایی که خاموش نمی‌شد دیدیم که به این سادگی‌ها ناامید و تموم نمی‌شیم.
+🔹خواهش می‌کنم ناامید نشید. به ۱۸ و ۱۹ دی فکر کنید، به اون همه جوان زیبا که رفتن برای آزادی و دیگه برنگشتن. ما باید این کار رو تموم کنیم.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12789
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست وزیر اسرائیل گفت که ارتش این کشور با قدرت به حملات علیه حزب‌الله ادامه خواهد داد.
+نتانیاهو اضافه کرد که نیروهای اسرائیل از رودخانه لیتانی در جنوب لبنان عبور کرده‌اند.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342342
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342342_1779973425.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: Los Angeles mayoral candidate @spencerpratt says even though the race is nonpartisan and he's a registered Republican, all of his supporters are Democrats because they're fed up because "they were fed a bunch of lies" by current mayor Karen Bass:
+
+"I'm a registered Republican, but my supporters are all Democrats because Los Angeles is all Democrats. All the people financing me are Democrats. All the meetings I take every day are Democrats. Democrats are very angry with what happened in Los Angeles."
+
+"It's a nonpartisan race. There's no letter next to either of our names, because the mayor is not supposed to represent a party. They're supposed to make sure your moms are safe, your houses don't burn down, and your tax money is going to your infrastructure not to fund drug addicts." | @foxandfriends
+</div>
+
+## FoxNewsTwitter — post 342341
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342341_1779973427.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“They’re trying to get me elected so they can move back.”
+
+L.A. mayoral candidate @spencerpratt reveals the strong support his campaign is getting from former Angelenos who feel they were pushed out of the city.
+
+“L.A. is incredible when you don’t let drug addicts take over the street and make moms and kids scared to go to parks or the school.” | @foxandfriends
+</div>
+
+## FoxNewsTwitter — post 342340
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342340_1779973428.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: Los Angeles mayoral candidate @spencerpratt says he never wanted to become mayor before, but felt the need to step up because the city deserves a leader who tells the truth.
+
+"I don't do national politics. I don't do parties. I just say, look, they're stealing all of our tax money to give it to drug addicts, to have needles and tourniquets, and they're actually even selling the drugs to these addicts to let these people die on our sidewalks."
+
+"I want to be the compassionate one. Get these people mandatory treatment, medical treatment with doctors to help them get off of fentanyl and super meth."
+
+"These people have failed us. They've spent all of our tax money to increase problems... I never wanted to be the mayor. I just wanted somebody to tell the truth." | @foxandfriends
+</div>
+
+## IranIntlTV — post 339409
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339409_1779973430.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آژانس بین‌المللی انرژی در گزارش تازه خود اعلام کرد که جنگ با حکومت ایران و ادامه بحران در تنگه هرمز، مسیر سرمایه‌گذاری جهانی در حوزه انرژی را به‌طور کامل تغییر داده است.
+
+جزییات بیشتر با لی‌لی نیکفر، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339408
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از زندگی در آتش‌بس- پنجشنبه ۷ خرداد
+
+🔹می‌خواستم بگم برخلاف خیلی‌ها که از ترامپ و نتانیاهو ناراحت هستن، من برعکس خیلی‌ها ازشون تشکر می‌کنم که تا همین‌جا هم واقعاً کارهای بزرگی انجام دادن. تغییر در رژیم یک رونده و مردم هم به‌هرحال باید این سختی‌ها رو تحمل کنن به امید روزی که نجات پیدا کنیم.
+🔹به‌وقتش خود ما می‌جنگیم، می‌میریم و در نهایت ما ایران رو پس می‌گیریم. درسته میگیم تا کی دیگه باید تاوان بدیم، ولی اینم می‌دونیم که آزادی به دست خودمون رقم می‌خوره.
+🔹اینجا همه‌چیز داره از هم می‌پاشه؛ زندگی‌ها، کارها، پیوندها، تندرستی، سلامت روان، بهداشت، خوراک و پوشاک. تنها چیزی که ما رو سرپا نگه داشته، دیدن راهپیمایی ایرانیان خارج از کشور در ماهواره و تصور روز آزادیه.
+🔹دوستان عزیز یادتون نره که این حکومت در دی‌ماه ۱۴۰۴ چه جنایاتی انجام داد. صرفا چون اینترنت رو وصل کردن نپرید بغل آخوند. این اینترنت حق ماست، پس برای گرفتن حقتون از این ستمگران سپاسگزار نباشید.
+🔹اکثریت ما با جمهوری اسلامی مخالفیم و کار آخر رو باید خودمون انجام بدیم.
+🔹در طول تاریخ، دیکتاتورها تا لحظه آخر شاخ و شونه می‌کشن و در نهایت به فجیع‌ترین حالت ممکن سقوط می‌کنن. ما برای آزادی بهای سنگینی دادیم؛ چه دی‌ماه و چه قبل از اون، پس صبور باشید و امیدوار.
+🔹امروز وصل شدم و خواستم بگم ما در ۱۸ و ۱۹ دی شکوهی از حجم جمعیت و صدایی که خاموش نمی‌شد دیدیم که به این سادگی‌ها ناامید و تموم نمی‌شیم.
+🔹خواهش می‌کنم ناامید نشید. به ۱۸ و ۱۹ دی فکر کنید، به اون همه جوان زیبا که رفتن برای آزادی و دیگه برنگشتن. ما باید این کار رو تموم کنیم.
+</div>
+
+## IranianMinds — post 20944
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20944_1779973431.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 جیمز اچ اسپنس مامور سابق اف بی ای:
+
+مگه نگفته بودم که با تروریست‌ ها نمیشه مذاکره کرد؟
+
+نوشته تو عکس : کار‌ رو تمام کن!
+
+@IranianMinds
+</div>
+
+## alonews — post 123300
+
+<div align="center">
+  <a href="telegram/content/alonews_123300_1779973432.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دولت عراق حملات ایران به کویت را بی‌شرمانه خواند!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 16:23
 ---
 
