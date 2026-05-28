@@ -7,6 +7,100 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 03:02
+---
+
+## pm_afshaa — post 91803
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت امور خارجه عراق :ما عملیات هدف قرار دادن کویت توسط ایران با موشک‌ها و پهپادها رو محکوم میکنیم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339489
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339489_1780011152.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرضیه از کرج: پرستارم؛ زخمی‌ها را به خانهٔ من می‌آوردند، اما امکانات کافی نداشتم
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/F2EDr9JvjxU
+@iranintltv
+</div>
+
+## IranIntlTV — post 339488
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339488_1780011153.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کارزار مردمی ایران‌اینترنشنال؛
+آنچه در شب‌های جنایت رشت اتفاق افتاد
+
+ایران‌اینترنشنال در کارزاری مردمی، به‌دنبال ثبت و مستندسازی حقیقت دربارهٔ کشتار دی‌ماه در رشت است. اگر شاهد عینی آن شب‌ها بوده‌اید یا از خانواده و نزدیکان کشته‌شدگان این شهر هستید، روایت و اطلاعات خود را از طریق چت‌بات اینتل‌مدیا با ما در میان بگذارید و در روشن شدن ابعاد این کشتار مشارکت کنید.
+
+کامبیز حسینی در گفت‌وگو با فرنوش فرجی به این موضوع می‌پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/F2EDr9JvjxU
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 15213
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15213_1780011156.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚔️
+⚔️لحظه نابودی پایگاه هوایی بندرعباس توسط بمب‌های فوق سنگین 2.2 تنی GBU-72 که توسط بمب افکن استراتژیک سنگین B-1B نیروی هوایی آمریکا در این حمله استفاده شد.
+💥
+💥
+
+
+
+👨‍💻:Phantom
+
+
+🛰
+🛰@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20987
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@IranianMindsGroup
+
+ایدی گروه کامنتا ( تو کامنتا خیلی درخواست داده بودید )
+</div>
+
+## IranianMinds — post 20985
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این تخم‌ حرومارو خب چرا تو برنامه ای که اربابات فیلتر کردن میپلکی پس؟
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 02:52
 ---
 
