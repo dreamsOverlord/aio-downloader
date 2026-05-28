@@ -7,6 +7,115 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 16:53
+---
+
+## FoxNewsTwitter — post 342343
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342343_1779974605.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @FoxTrueCrime: ROUGH SEAS: GPS data from Brian Hooker's device shows him stopping in the Sea of Abaco and returning to shore — a track that contradicts the story he told investigators about the night his wife Lynette vanished from their dinghy, according to a report and which a source confirmed to Fox News Digital.
+
+The FBI lab in Quantico now processes additional evidence, and the Coast Guard already seized the couple's shared sailboat, named 'Soulmate.'
+</div>
+
+## DW_Farsi — post 125240
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125240_1779974606.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 سازمان ملل، اسرائیل را به دلیل "خشونت جنسی" در مناطق جنگی به فهرست سیاه اضافه کرد
+
+دنی دانون، سفیر اسرائیل در سازمان ملل، می‌گوید سازمان ملل، این کشور را به دلیل "خشونت جنسی در مناطق جنگی" به فهرست سیاه اضافه کرده است.
+
+او در پستی در رسانه‌های اجتماعی، با اشاره به تصمیم سازمان ملل در این زمینه این تصمیم را "تصمیمی سیاسی" خواند.
+
+طبق گزارش‌های رسانه‌های اسرائیلی، سازمان زندان‌های اسرائیل در کنار سایر مقامات اسرائیلی، از جمله چندین نهادی است که به فهرست سازمان ملل اضافه شده‌اند.
+
+پیش از این شبکه تلویزیونی الجزیره در مورد آن چه که "تجاوز جنسی و خشونت انجام شده توسط نیروهای اسرائیلی علیه فلسطینیان" خوانده شده، گزارش داده بود.
+
+اسرائیل، آنتونیو گوترش، دبیرکل سازمان ملل را به جانبداری سیاسی متهم کرده و گفته که روابط خود را با دفتر او تعلیق خواهد کرد.
+حماس نیز در این فهرست قرار دارد.
+
+سازمان ملل پیش ازاین اعلام کرده بود که این گروه، در جریان حمله هفتم اکتبر و همچنین علیه گروگان‌هایی که در غزه نگهداری می‌شدند، مرتکب خشونت جنسی شده است.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125239
+
+<div align="center">
+  <a href="telegram/content/DW_Farsi_125239_1779974606.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 موضع مذاهب در برابر هوش مصنوعی چیست؟
+
+وقتی هوش مصنوعی به دین ورود می‌کند، چه اتفاقی می‌افتد؟
+پاپ و دیگر رهبران مذهبی مانند دالایی لاما برای رسیدن به پاسخ این پرسش، تلاش می‌کنند.
+
+@dw_farsi
+</div>
+
+## IranianMinds — post 20948
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ارتش اسرائیل : رفتیم بالا سر حزب الله و داریم‌ جنوب لبنانو شخم‌ میزنیم. @IranianMinds
+</div>
+
+## IranianMinds — post 20947
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ارتش اسرائیل :
+
+رفتیم بالا سر حزب الله و داریم‌ جنوب لبنانو شخم‌ میزنیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20946
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20946_1779974608.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴❗️ کانال مردمی «آورکسا» ❗️🔴
+
+⚡️ پوشش فوری وقایع نظامی جهان
+🛰 تحلیل تجهیزات و تاکتیک‌های نظامی
+🎯 اخبار سیاسی، نظامی و امنیتی
+📡 آپدیت ۲۴ ساعته و لحظه‌ای
+❌ سریع، دقیق، بدون حاشیه
+
+https://t.me/AverxaNews
+https://t.me/AverxaNews
+
+
+✅همین حالا عضو شوید و یک قدم جلوتر از خبرها باشید.
+</div>
+
+## alonews — post 123302
+
+<div align="center">
+  <a href="telegram/content/alonews_123302_1779974609.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ایران آتش‌بس شکننده رو با شلیک موشک به کویت و فرستادن پهپاد نقض کرده.
+
+
+🔴پدافند هوایی کویت تونسته ساعت ۱۰:۱۷ شب به وقت شرق آمریکا موشک رو بزنه و نذاره به زیرساخت‌های مهمی که هزاران نفر اونجا هستن برخورد کنه.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 16:43
 ---
 
