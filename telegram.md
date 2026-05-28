@@ -7,6 +7,131 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 22:13
+---
+
+## VahidOOnLine — post 242647
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️علی باقری کنی معاون دبیر شورای عالی امنیت ملی ایران در گفتگو با اسپوتنیک آمریکا را به «تجاوزگری» متهم کرد و گفت: «اینکه آمریکا دو بار در جریان مذاکرات بدون هیچ دلیلی به ایران تجاوز کرد، نشان می‌دهد که آمریکا خوی و سرشت تجاوزگری دارد، برای همین است که ملت ایران هیچ وقت به آمریکایی‌ها در واقع اعتماد ندارد.»
+پیشتر نیز برخی از مقام‌های جمهوری اسلامی گفته بودند حتی در صورت دستیابی به توافق با آمریکا، هیچ تضمینی برای اجرای آن وجود ندارد.
+این اظهارات در حالی مطرح می‌شود که با وجود ادامه مذاکرات میان تهران و واشنگتن، دونالد ترامپ چهارشنبه شب از روند گفتگوها و پیشنهادهای جمهوری اسلامی، ابراز نارضایتی کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9870
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_9870_1779993834.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر جنگ ایالات متحده ؛ به لطف سرمایه‌گذاری تاریخی ۱.۵ تریلیون دلاری رئیس‌جمهور ترامپ در حوزه نظامی، نیروهای ما بزرگ‌ترین افزایش حقوق در تاریخ معاصر را دریافت خواهند کرد.
+
+🔸ما همچنین یک سرمایه‌گذاری نسلی در پادگان‌ها، زیرساخت‌های نظامی و سیستم‌های پشتیبانی نیروها انجام می‌دهیم.
+
+📌«اول آمریکا» یعنی «اول نیروهای نظامی»
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342360
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342360_1779993836.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Secretary Scott Bessent shuts down rumors of a potential future presidential run after a reporter points out he is following the exact same path as Vice President Vance and Secretary Rubio, filling in for Karoline Leavitt:
+
+"I think it just means they're run out of things on the food chain."
+</div>
+
+## pm_afshaa — post 91763
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://e258977b-e413-4718-a3af-02d75492c349@14.102.228.76:2096?encryption=none&security=tls&sni=jp.aniua.qzz.io&insecure=1&allowInsecure=1&type=ws&host=jp.aniua.qzz.io&path=%2F#PMTV%20NEWS%20%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+نامحدود سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91762
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+trojan://mitivpn@14.102.228.76:443?security=tls&sni=www.app-cloud.ir&insecure=1&allowInsecure=1&type=ws&path=%2Fhttp%2F1.1#PMTV%20NEWS%20%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+نامحدود سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 218910
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر امور خارجه آمریکا، پس از نشست کابینه دولت ترامپ با انتشار این عکس‌ها نوشت: این دولت «شفاف‌ترین دولت در تاریخ» است.
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218909
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقامات امریکایی به صدای امریکا دستیابی به تفاهم‌نامه ۶۰ روزه بین ایران و امریکا رو تایید کردند
+</div>
+
+## alonews — post 123368
+
+<div align="center">
+  <a href="telegram/content/alonews_123368_1779993838.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار : آیا تمدید موقت ۶۰ روزه آتش‌بس و ادامه مذاکرات هسته‌ای درحال حال بررسیه؟
+
+
+🔴بِسِنت : رئیس‌جمهور خیلی واضح گفته،تنگه هرمز باید باز شه
+- اورانیوم بسیار غنی‌شده باید تحویل داده شه، و برنامه هسته‌ای نباید وجود داشته باشه
+
+🔴خبرنگار : آیا این سه مورد داخل توافق هست؟
+
+
+🔴بِسِنت :
+- اگه بدون این موارد اصلاً توافقی وجود نداره، پس چرا باید توافقی بدون آن‌ها باشه؟
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123367
+
+<div align="center">
+  <a href="telegram/content/alonews_123367_1779993840.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار : ترامپ تهدید کرده عمان رو «بمباران» کنه. شما دارید برای جنگ جدید با عمان برنامه‌ریزی می‌کنید؟
+
+
+🔴بِسِنت : فکر می‌کنم رئیس‌جمهور می‌خواست بر اهمیت آزادی کشتیرانی تو تنگه تأکید کنه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 22:07
 ---
 
