@@ -7,6 +7,73 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 00:22
+---
+
+## VahidOOnLine — post 242659
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242659_1780001532.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش خبرگزاری مهر، در پی شنیده شدن صدای انفجار در منطقه ۷ چاه شهرستان جم واقع در استان بوشهر، مشخص شد که این رخداد ناشی از عملکرد پدافند دفاعی بوده است.
+پیش‌تر، خبرگزاری تسنیم گزارش داده بود صداهای شنیده‌شده احتمالا به شلیک‌های اخطار نیروی دریایی ایران به برخی شناورها مرتبط است. خبرگزاری فارس نیز اعلام کرد نیروهای مسلح جمهوری اسلامی پنجشنبه شب از مناطق جنوبی کشور به‌سمت اهدافی نامشخص موشک شلیک کرده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12834
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/boost/withyashar بوست داره میریزههههه
+</div>
+
+## WithYashar — post 12833
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/boost/withyashar
+
+بوست داره میریزههههه
+</div>
+
+## FarsiVOA — post 218927
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺گزارش‌های رسانه‌های حکومتی در ایران از حملات موشکی جمهوری اسلامی
+
+▪️خبرگزاری فارس، وابسته به سپاه پاسداران، اواخر پنج‌شنبه ۷ خرداد از شلیک موشک از مناطق جنوبی ایران خبر داد و مدعی شد که مقصد این موشک‌ها مشخص نیست.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8154974.html
+@FarsiVOA
+</div>
+
+## IranianMinds — post 20971
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبر‌گزاری مهر از شنیده شدن صدای انفجار در شهر جم از توابع استان بوشهر و واکنش پدافند ضد‌هوایی ایران به جنگنده‌های دشمن در آسمان بوشهر خبر داد.
+
+@IranianMinds
+</div>
+
+## alonews — post 123395
+
+<div align="center">
+  <a href="telegram/content/alonews_123395_1780001533.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈90 روز از ترور علی خامنه‌ای رهبر پیشین جمهوری اسلامی گذشت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 00:12
 ---
 
