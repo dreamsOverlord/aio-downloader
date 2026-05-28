@@ -7,6 +7,59 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 01:32
+---
+
+## IranIntlTV — post 339477
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاخ سفید به ایران‌اینترنشنال اعلام کرد جمهوری اسلامی آمادگی خود برای امضای یادداشت تفاهم نهایی را به دونالد ترامپ اطلاع داده است؛ اکسیوس نیز از توافق بر سر تفاهم‌نامه ۶۰ روزه خبر داد، اما دونالد ترامپ هنوز آن را تایید نکرده است.
+
+سمیرا قرایی از کاخ سفید گزارش می‌دهد.
+@iranintltv
+</div>
+
+## FarsiVOA — post 218935
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218935_1780005742.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کاهش علاقه جوانان در ایران به تحصیل در رشته‌های علوم پایه؛ گفت‌وگو با پیروز نامی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218934
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218934_1780005743.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️چرا جمهوری اسلامی قیمت بنزین در ایران را با سایر کشورها مقایسه می‌کند؟ گفت‌وگو با رضا غیبی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218933
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کنکور ۱۴۰۵ در سایه جنگ و بلاتکلیفی؛ دانش‌آموزان به خیابان آمدند
+@FarsiVOA
+</div>
+
+## IranianMinds — post 20975
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تسنیم :
+
+یه پهپاد آمریکایی رو تو بوشهر زدیم بمولا.
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 01:22
 ---
 
