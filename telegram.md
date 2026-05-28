@@ -7,6 +7,135 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 21:53
+---
+
+## VahidOOnLine — post 242644
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242644_1779992610.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وال‌استریت پس از حملات یازده سپتامبر، فقط شش روز تعطیل بود، اما روسیه پس از حمله به اوکراین، بازار مسکو را یک ماه تعطیل کرد. بورس‌های امارات پس از حملات موشکی و پهپادی جمهوری اسلامی فقط دو روز معاملات را متوقف کردند، در حالیکه بورس تهران، در یک رکورد تاریخی، بیش از هشتاد روز تعطیل بود. در این قسمت چرتکه، محمد ماشین‌چیان رویکرد آمریکایی و روسی به بازار را در مقیاس ایران و امارات بررسی می‌کند.
+
+تماشای نسخه کامل «چرتکه» در یوتیوب:
+youtu.be
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12810
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : موج مکزیکی رو میبینید چقدر زیباست ؟ 😍🌊
+</div>
+
+## WithYashar — post 12809
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای سی‌ان‌ان:ترامپ در‌هر حالت قبل از امضای تفاهم‌نامه با بنیامین نتانیاهو مشورت خواهد کرد
+@withyashar
+</div>
+
+## WithYashar — post 12808
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای تسنیم: یک منبع نزدیک به تیم مذاکره‌کننده گفت بر خلاف ادعای برخی منابع غربی مبنی بر اینکه متن اصطلاحاً «یادداشت تفاهم» میان ایران و آمریکا نهایی شده و فقط منتظر اعلام دو طرف است، این موضوع واقعیت ندارد و هنوز متن قطعی نشده است.
+وی افزود: ایران تا این لحظه به میانجی پاکستانی اعلام نهایی شدن متن را انجام نداده است.
+@withyashar
+</div>
+
+## WithYashar — post 12807
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+: NBC ادعای
+آمریکا و ایران سه روز پیش تو دوحه به توافق رسیدن، ولی فعلا اعلامش نمیکنن
+@withyashar
+</div>
+
+## pm_afshaa — post 91760
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الحدث به نقل از سفیر عربستان در واشنگتن ادعا کرد: پیت هگست، وزیر جنگ آمریکا، نخست‌وزیر قطر را در تماس تلفنی به دلیل حمایت از حماس و انعطاف‌ناپذیری در قبال ایران، تهدید به ترور کرده
+
+پروکسی
+پروکسی
+پروکسی
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339455
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339455_1779992612.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وال‌استریت پس از حملات یازده سپتامبر، فقط شش روز تعطیل بود، اما روسیه پس از حمله به اوکراین، بازار مسکو را یک ماه تعطیل کرد. بورس‌های امارات پس از حملات موشکی و پهپادی جمهوری اسلامی فقط دو روز معاملات را متوقف کردند، در حالیکه بورس تهران، در یک رکورد تاریخی، بیش از هشتاد روز تعطیل بود. در این قسمت چرتکه، محمد ماشین‌چیان رویکرد آمریکایی و روسی به بازار را در مقیاس ایران و امارات بررسی می‌کند.
+
+تماشای نسخه کامل «چرتکه» در یوتیوب:
+https://youtu.be/gPWijjjbR5M
+</div>
+
+## RadioFarda — post 157671
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157671" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریشه‌های «اختلاف و آشفتگی» در جمهوری اسلامی در گفت‌وگو با محسن سازگارا
+
+🔸رسانه‌های ایران پیامی منسوب به مجتبی خامنه‌ای، رهبر جمهوری اسلامی، را خطاب به نمایندگان مجلس شورای اسلامی منتشر کردند که در آن می‌گوید «ایجاد تفرقه و تجزیه اجتماعی»، در کنار جنگ و فشار اقتصادی و محاصره، «طرح و نقشهٔ کور دشمن» است.مجتبی خامنه‌ای در این پیام که روز هفتم خرداد منتشر شد، همچنین به تمام کسانی که آن‌ها را «جان‌فدایانی که دل‌شان برای اسلام و انقلاب یا استقلال و سربلندی ایران می‌تپد» نامیده، هشدار داد که «اختلافات غیرموجه و حتی موجه را به تنازع و تفرقه تبدیل نکنند». درباره این بیانیه ارزیابی محسن سازگارا، تحلیلگر و فعال سیاسی ساکن آمریکا، را بشنوید.
+
+@RadioFarda
+</div>
+
+## alonews — post 123358
+
+<div align="center">
+  <a href="telegram/content/alonews_123358_1779992614.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری CNN: ترامپ قبل از امضای تفاهم‌نامه با بنیامین نتانیاهو مشورت خواهد کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123357
+
+<div align="center">
+  <a href="telegram/content/alonews_123357_1779992614.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مهدی کاظمیان سخنگوی منطقه آزاد انزلی گفت: در ساعت ۱۸ و ۳۰ دقیقه امروز آتش سوزی در فندرهای (ضربه گیر) لاستیکی اسکله رخ داد که با تلاش آتش نشانان این منطقه مهار شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123356
+
+<div align="center">
+  <a href="telegram/content/alonews_123356_1779992614.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تسنیم: برخلاف ادعای منابع غربی، متن تفاهم‌نامه احتمالی تا این لحظه نهایی و قطعی نشده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 21:45
 ---
 
