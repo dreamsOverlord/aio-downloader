@@ -7,6 +7,59 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 04:12
+---
+
+## VahidOOnLine — post 242687
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242687_1780015352.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مارک لوین، مجری و تحلیلگر نزدیک به ترامپ در واکنش به گزارش‌ها درباره توافق آمریکا با حکومت ایران در پیامی در اکس نوشت:
+ بار دیگر، مخاطبان رادیویی من به‌وضوح اعلام کرده‌اند که می‌خواهند رژیم ایران نابود شود و هیچ توافقی در کار نباشد. من درک می‌کنم که این یک نظرسنجی علمی نیست، اما مخاطبان من به‌شدت محافظه‌کار و حامی ترامپ هستند. و گاهی ما اجازه می‌دهیم نظرات آنلاین، که می‌تواند از هر جا و از هر کسی باشد، بر دیدگاه ما تاثیر بگذارد. و این مخاطبان در مورد رژیم ایران و پیامدهای شکست نخوردن آن بسیار آگاه هستند پیامدهای سیاسی، نظامی و پیامدهای آینده
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342376
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+New York City Mayor Zohran Mamdani will not attend the city’s annual Israel Day Parade on Sunday — breaking with a tradition every NYC mayor has upheld since 1964.
+
+The decision comes as Mamdani has continued appearing at major cultural and religious events across the city, including the Saint Patrick’s Day Parade, Lunar New Year celebrations, Eid prayers in Brooklyn, and the Sikh Day Parade in Manhattan.
+
+His absence from this year’s Israel Day Parade is already drawing criticism as antisemitism reaches record levels in New York and anti-Israel demonstrations continue outside synagogues and Jewish institutions across the city.
+</div>
+
+## IranIntlTV — post 339502
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339502_1780015353.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شورای سردبیری وال‌استریت‌ژورنال در مطلبی نوشت مذاکره‌کنندگان آمریکایی بیش از هر زمان دیگری مطمئن هستند که به توافق اولیه با جمهوری اسلامی نزدیک شده‌اند؛ توافقی که مزیت اصلی آن، وعده بازگشایی تنگه هرمز است.
+این مطلب ساختار دومرحله‌ای توافق را بزرگ‌ترین خطر آن دانست و نوشت بدون محاصره آمریکا در جریان مذاکرات هسته‌ای، گرفتن امتیاز از ایران دشوارتر می‌شود؛ زیرا تهران ممکن است مهلت ۶۰ روزه ترامپ را مانند مذاکرات اوباما کش بدهد.
+وال‌استریت‌ژورنال نوشت پایان محاصره‌های متقابل می‌تواند به اقتصاد جهانی و به‌ویژه اقتصاد ایران کمک کند، اما «پیروزی» محسوب نمی‌شود. به نوشته این روزنامه، توافق خوب باید همه اورانیوم غنی‌شده، سایت‌های زیرزمینی، بازرسی‌های سخت‌گیرانه و ممنوعیت غنی‌سازی را در بر بگیرد.
+
+https://iranintl.com/202605298220
+</div>
+
+## FarsiVOA — post 218946
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_218946_1780015354.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ستاد فرماندهی مرکزی آمریکا، سنتکام ادعای تلویزیون حکومتی ایران را که نیروهای جمهوری اسلامی یک هواپیمای آمریکایی را در نزدیکی بوشهر سرنگون کرده‌اند نادرست خواند و افزود هیچ هواپیمای آمریکایی سرنگون نشده است.
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 04:02
 ---
 
