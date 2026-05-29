@@ -7,6 +7,51 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 06:22
+---
+
+## FoxNewsTwitter — post 342387
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342387_1780023150.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"I don't want anybody to endorse me except for the moms and the animal lovers in LA — that's my entire vote."
+
+LA mayoral candidate Spencer Pratt tells @Gutfeldfox that he's not interested in getting endorsements from Hollywood celebrities.
+</div>
+
+## FoxNewsTwitter — post 342386
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342386_1780023151.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+.@greggutfeld: "Is there anybody who was devastated by the fires still voting for Karen Bass?"
+
+@spencerpratt: "There's definitely lunatics. Their houses didn't burn down, but they could have been saved by the US Forest Service."
+
+"But these people have convinced themselves the Palisades burned down because of climate change....it wasn't that Mayor Bass was drinking in Ghana and defunded the firefighters." | @gutfeldfox
+</div>
+
+## FoxNewsTwitter — post 342385
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342385_1780023153.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"The people I'm surging with are the people having to step over the naked drug addicts and step into human poop to get their $20 matcha."
+
+Spencer Pratt slams the idea that he's only popular on the internet as he joins @Gutfeldfox days before the Los Angeles mayoral primary.
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 06:12
 ---
 
