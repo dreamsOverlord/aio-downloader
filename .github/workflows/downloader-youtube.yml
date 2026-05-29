@@ -54,6 +54,18 @@ on:
           - drive
         default: repo
 
+      # ── NEW INPUTS ─────────────────────────────────────
+      vpn_enabled:
+        description: 'Route downloads through WireGuard VPN (requires secret WG_CONFIG)'
+        type: boolean
+        default: false
+      concurrent_downloads:
+        description: 'Number of URLs to download at the same time'
+        type: number
+        default: 4
+        required: false
+      # ─── END NEW INPUTS ───────────────────────────────
+
 permissions:
   contents: write
 
@@ -88,6 +100,45 @@ jobs:
           fi
         env:
           YOUTUBE_COOKIES: ${{ secrets.YOUTUBE_COOKIES }}
+
+      # ── VPN SETUP (WireGuard – same pattern as spotDL) ──
+      - name: '🔒 Set up WireGuard VPN (if enabled)'
+        id: vpn
+        shell: bash
+        run: |
+          VPN_ENABLED="${{ inputs.vpn_enabled }}"
+          echo "VPN_ENABLED=$VPN_ENABLED"
+
+          if [ "$VPN_ENABLED" = "true" ]; then
+            if [ -z "${{ secrets.WG_CONFIG }}" ]; then
+              echo "⚠️ VPN enabled but WG_CONFIG secret is empty – VPN disabled for this run."
+              echo "vpn_available=false" >> $GITHUB_OUTPUT
+              exit 0
+            fi
+
+            echo "→ Installing WireGuard tools..."
+            sudo apt-get update -qq
+            sudo apt-get install -y -qq wireguard-tools openresolv 2>/dev/null || sudo apt-get install -y -qq wireguard-tools
+
+            echo "→ Writing WireGuard config..."
+            cat <<'EOF' > /tmp/wg0.conf
+          ${{ secrets.WG_CONFIG }}
+          EOF
+            sudo cp /tmp/wg0.conf /etc/wireguard/wg0.conf
+            sudo chmod 600 /etc/wireguard/wg0.conf
+
+            echo "→ Bringing up wg0..."
+            if sudo wg-quick up wg0; then
+              echo "✅ WireGuard VPN connected."
+              echo "vpn_available=true" >> $GITHUB_OUTPUT
+            else
+              echo "⚠️ Failed to bring up WireGuard – VPN disabled."
+              sudo wg-quick down wg0 2>/dev/null || true
+              echo "vpn_available=false" >> $GITHUB_OUTPUT
+            fi
+          else
+            echo "vpn_available=false" >> $GITHUB_OUTPUT
+          fi
 
       # ── Parse URLs & per‑URL arguments ────────────────────
       - name: '📝 Parse all URLs and per‑URL arguments'
@@ -167,29 +218,29 @@ jobs:
           pip3 install --quiet requests
           echo "✅ Fallback dependencies installed."
 
-      # ── Primary download (yt-dlp -j → pick format ID → download) ──
-      - name: '⬇️ Primary download (original approach)'
+      # ══════════ PRIMARY DOWNLOAD (parallel + VPN fallback) ══════════
+      - name: '⬇️ Primary download (parallel, with VPN fallback)'
         id: primary_download
+        shell: bash
         run: |
-          set -e
+          set -x   # full trace
           ENTRIES_JSON='${{ steps.parse.outputs.ENTRIES_JSON }}'
           OUTPUT_FOLDER="${{ steps.tempdir.outputs.TEMP_DIR }}"
           mkdir -p "$OUTPUT_FOLDER"
 
-          # Global defaults from the workflow inputs
+          # Global defaults
           GLOBAL_FORMAT="${{ github.event.inputs.output_format }}"
           GLOBAL_VQ="${{ github.event.inputs.video_quality }}"
           GLOBAL_AQ="${{ github.event.inputs.audio_quality }}"
+          VPN_AVAILABLE="${{ steps.vpn.outputs.vpn_available }}"
 
-          # Extract numeric part
+          CONCURRENT="${{ inputs.concurrent_downloads }}"   # NEW
+
           GLOBAL_VQ_NUM=$(echo "$GLOBAL_VQ" | grep -o '[0-9]*' | head -1)
           GLOBAL_AQ_NUM=$(echo "$GLOBAL_AQ" | grep -o '[0-9]*' | head -1)
-
-          # Handle "best" keyword
           if [ "$GLOBAL_VQ" = "best" ]; then GLOBAL_VQ_NUM="max"; fi
           if [ "$GLOBAL_AQ" = "best" ]; then GLOBAL_AQ_NUM="max"; fi
 
-          # Derive the default type/value
           if [ "$GLOBAL_FORMAT" = "mp3 (audio only)" ]; then
             GLOBAL_TYPE="a"
             GLOBAL_VAL="$GLOBAL_AQ_NUM"
@@ -202,10 +253,46 @@ jobs:
           COOKIE_ARGS=""
           [ -f youtube-cookies.txt ] && COOKIE_ARGS="--cookies youtube-cookies.txt"
 
-          FAILED_ENTRIES='[]'
-          count=$(echo "$ENTRIES_JSON" | jq length)
+          FAILED_ENTRIES_JSON='[]'
+          export FAILED_ENTRIES_JSON  # will be modified by parallel workers
+          # Use a lock file to avoid race condition when appending to JSON
+          FAILED_LOCK="/tmp/failed.lock"
 
-          for ((idx=0; idx<count; idx++)); do
+          # Helper: try with VPN, fallback to direct
+          run_with_fallback() {
+            desc="$1"; shift
+            if [ "$VPN_AVAILABLE" = "true" ]; then
+              echo "→ [VPN] $desc"
+              if "$@"; then
+                echo "✅ [VPN] succeeded."
+                return 0
+              else
+                echo "⚠️ [VPN] failed – falling back to direct connection..."
+                sudo wg-quick down wg0 2>/dev/null || true
+                echo "→ [Direct] $desc"
+                if "$@"; then
+                  echo "✅ [Direct] succeeded (VPN failed)."
+                  sudo wg-quick up wg0 2>/dev/null || true
+                  return 0
+                else
+                  echo "❌ [Direct] also failed."
+                  sudo wg-quick up wg0 2>/dev/null || true
+                  return 1
+                fi
+              fi
+            else
+              echo "→ $desc"
+              "$@"
+              return $?
+            fi
+          }
+          export -f run_with_fallback
+
+          # Main download function for ONE entry
+          download_one() {
+            local idx="$1"
+            local link type val
+
             link=$(echo "$ENTRIES_JSON" | jq -r ".[$idx].link")
             args=$(echo "$ENTRIES_JSON" | jq -r ".[$idx].args[]?" 2>/dev/null || true)
 
@@ -224,25 +311,26 @@ jobs:
             fi
 
             echo "========================================"
-            echo "📹 Processing $((idx+1))/$count: $link"
-            echo "🔧 Type: $type Quality: $val"
+            echo "📹 Processing entry $((idx+1)): $link (type=$type quality=$val)"
 
-            # ── Get video info as JSON ──
-            echo "🔍 Fetching video info..."
+            # Fetch video info
             YT_DLP_ARGS="$COOKIE_ARGS --js-runtimes deno --remote-components ejs:npm --no-progress"
-            VIDEO_JSON=$(yt-dlp $YT_DLP_ARGS -j "$link" 2>/dev/null) || {
+            VIDEO_JSON=""
+
+            if ! run_with_fallback "Fetch info for $link" \
+              sh -c "yt-dlp $YT_DLP_ARGS -j \"$link\" > /tmp/videoinfo_$idx.json 2>/dev/null"; then
               echo "❌ Failed to fetch video info – queued for fallback"
-              FAILED_ENTRIES=$(echo "$FAILED_ENTRIES" | jq ". + [{link: \"$link\", type: \"$type\", val: \"$val\"}]")
-              continue
-            }
+              flock "$FAILED_LOCK" bash -c "FAILED_ENTRIES_JSON=\$(echo \"\$FAILED_ENTRIES_JSON\" | jq \". + [{link: \\\"$link\\\", type: \\\"$type\\\", val: \\\"$val\\\"}]\")"
+              return 1
+            fi
+            VIDEO_JSON=$(cat "/tmp/videoinfo_$idx.json" 2>/dev/null)
 
             if [ "$type" = "a" ]; then
-              # ── Audio: select from audio-only formats ──
               AUDIO_FORMATS=$(echo "$VIDEO_JSON" | jq '[.formats[] | select(.vcodec == "none" and .acodec != "none")]')
               if [ "$(echo "$AUDIO_FORMATS" | jq 'length')" -eq 0 ]; then
                 echo "❌ No audio-only formats found – queued for fallback"
-                FAILED_ENTRIES=$(echo "$FAILED_ENTRIES" | jq ". + [{link: \"$link\", type: \"$type\", val: \"$val\"}]")
-                continue
+                flock "$FAILED_LOCK" bash -c "FAILED_ENTRIES_JSON=\$(echo \"\$FAILED_ENTRIES_JSON\" | jq \". + [{link: \\\"$link\\\", type: \\\"$type\\\", val: \\\"$val\\\"}]\")"
+                return 1
               fi
               case "$val" in
                 max) FORMAT_ID=$(echo "$AUDIO_FORMATS" | jq -r 'max_by(.abr // .tbr) | .format_id') ;;
@@ -257,21 +345,19 @@ jobs:
                   ;;
               esac
               echo "🎵 Selected audio format: $FORMAT_ID (bitrate: ~${CHOSEN_BITRATE:-$val}kbps)"
-              echo "⬇️ Downloading audio..."
-              if yt-dlp $YT_DLP_ARGS -f "$FORMAT_ID" \
-                -o "$OUTPUT_FOLDER/%(title)s-${val}kbps.%(ext)s" "$link"; then
+              if run_with_fallback "Download audio $link" \
+                yt-dlp $YT_DLP_ARGS -f "$FORMAT_ID" -o "$OUTPUT_FOLDER/%(title)s-${val}kbps.%(ext)s" "$link"; then
                 echo "✅ Audio download success"
               else
                 echo "❌ Primary download failed – queued for fallback"
-                FAILED_ENTRIES=$(echo "$FAILED_ENTRIES" | jq ". + [{link: \"$link\", type: \"$type\", val: \"$val\"}]")
+                flock "$FAILED_LOCK" bash -c "FAILED_ENTRIES_JSON=\$(echo \"\$FAILED_ENTRIES_JSON\" | jq \". + [{link: \\\"$link\\\", type: \\\"$type\\\", val: \\\"$val\\\"}]\")"
               fi
             else
-              # ── Video: select from combined formats (vcodec+acodec) ──
               COMBINED=$(echo "$VIDEO_JSON" | jq '[.formats[] | select(.vcodec != "none" and .acodec != "none")]')
               if [ "$(echo "$COMBINED" | jq 'length')" -eq 0 ]; then
                 echo "❌ No combined formats found – queued for fallback"
-                FAILED_ENTRIES=$(echo "$FAILED_ENTRIES" | jq ". + [{link: \"$link\", type: \"$type\", val: \"$val\"}]")
-                continue
+                flock "$FAILED_LOCK" bash -c "FAILED_ENTRIES_JSON=\$(echo \"\$FAILED_ENTRIES_JSON\" | jq \". + [{link: \\\"$link\\\", type: \\\"$type\\\", val: \\\"$val\\\"}]\")"
+                return 1
               fi
               case "$val" in
                 max) FORMAT_ID=$(echo "$COMBINED" | jq -r 'max_by(.height, .fps) | .format_id') ;;
@@ -286,35 +372,48 @@ jobs:
                   ;;
               esac
               echo "🎬 Selected video format: $FORMAT_ID (height: ${CHOSEN_HEIGHT:-$val}p)"
-              echo "⬇️ Downloading video..."
-              if yt-dlp $YT_DLP_ARGS -f "$FORMAT_ID" \
-                -o "$OUTPUT_FOLDER/%(title)s-${val}p.%(ext)s" "$link"; then
+              if run_with_fallback "Download video $link" \
+                yt-dlp $YT_DLP_ARGS -f "$FORMAT_ID" -o "$OUTPUT_FOLDER/%(title)s-${val}p.%(ext)s" "$link"; then
                 echo "✅ Video download success"
               else
                 echo "❌ Primary download failed – queued for fallback"
-                FAILED_ENTRIES=$(echo "$FAILED_ENTRIES" | jq ". + [{link: \"$link\", type: \"$type\", val: \"$val\"}]")
+                flock "$FAILED_LOCK" bash -c "FAILED_ENTRIES_JSON=\$(echo \"\$FAILED_ENTRIES_JSON\" | jq \". + [{link: \\\"$link\\\", type: \\\"$type\\\", val: \\\"$val\\\"}]\")"
               fi
             fi
-          done
+            rm -f "/tmp/videoinfo_$idx.json"
+          }
 
-          FAILED_ENTRIES_JSON=$(echo "$FAILED_ENTRIES" | jq -c .)
+          export -f download_one
+          export ENTRIES_JSON GLOBAL_TYPE GLOBAL_VAL VPN_AVAILABLE OUTPUT_FOLDER COOKIE_ARGS FAILED_ENTRIES_JSON FAILED_LOCK
+
+          count=$(echo "$ENTRIES_JSON" | jq length)
+          echo "→ Starting parallel downloads (concurrent=$CONCURRENT)"
+          # Use xargs to run in parallel; feed indices 0..count-1
+          seq 0 $((count-1)) | xargs -P "$CONCURRENT" -I '{}' bash -c 'download_one "{}"'
+
+          # Export the final failed entries
           echo "FAILED_ENTRIES_JSON=$FAILED_ENTRIES_JSON" >> $GITHUB_OUTPUT
-          echo "📊 Primary phase done. Failures: $(echo "$FAILED_ENTRIES" | jq length)"
+          echo "📊 Primary phase done. Failures: $(echo "$FAILED_ENTRIES_JSON" | jq length)"
+          set +x
 
-      # ── Fallback pipelines (Piped → IPv4 → ytmp3.gg → Advanced) ──
+      # ══════════ FALLBACK PIPELINES (parallel + VPN fallback) ══════════
       - name: '🔄 Fallback pipelines'
         if: steps.primary_download.outputs.FAILED_ENTRIES_JSON != '[]'
+        shell: bash
         run: |
-          set -e
+          set -x
           FAILED_ENTRIES='${{ steps.primary_download.outputs.FAILED_ENTRIES_JSON }}'
           count=$(echo "$FAILED_ENTRIES" | jq length)
           echo "🔄 Attempting fallback for $count failed entries..."
           OUTPUT_FOLDER="${{ steps.tempdir.outputs.TEMP_DIR }}"
+          VPN_AVAILABLE="${{ steps.vpn.outputs.vpn_available }}"
+          CONCURRENT="${{ inputs.concurrent_downloads }}"
 
-          # Helper for filename suffix
+          COOKIE_ARGS=""
+          [ -f youtube-cookies.txt ] && COOKIE_ARGS="--cookies youtube-cookies.txt"
+
           build_suffix() {
-            local type="$1"
-            local val="$2"
+            local type="$1" val="$2"
             if [ "$type" = "a" ]; then
               echo "${val}kbps"
             else
@@ -322,9 +421,32 @@ jobs:
             fi
           }
 
-          COOKIE_ARGS=""
-          [ -f youtube-cookies.txt ] && COOKIE_ARGS="--cookies youtube-cookies.txt"
+          # VPN fallback wrapper (same as before)
+          run_with_fallback() {
+            desc="$1"; shift
+            if [ "$VPN_AVAILABLE" = "true" ]; then
+              echo "→ [VPN] $desc"
+              if "$@"; then
+                echo "✅ [VPN] succeeded."; return 0
+              else
+                echo "⚠️ [VPN] failed – falling back to direct connection..."
+                sudo wg-quick down wg0 2>/dev/null || true
+                echo "→ [Direct] $desc"
+                if "$@"; then
+                  echo "✅ [Direct] succeeded (VPN failed)."
+                  sudo wg-quick up wg0 2>/dev/null || true; return 0
+                else
+                  echo "❌ [Direct] also failed."
+                  sudo wg-quick up wg0 2>/dev/null || true; return 1
+                fi
+              fi
+            else
+              echo "→ $desc"
+              "$@"; return $?
+            fi
+          }
 
+          # ── Fallback 1: Piped API ──
           # ── Fallback 1: Piped privacy-respecting API ──
           fallback_piped() {
             echo "[fallback] Piped API"
