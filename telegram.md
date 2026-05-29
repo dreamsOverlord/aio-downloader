@@ -7,6 +7,107 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 15:02
+---
+
+## WithYashar — post 12855
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12855_1780054364.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از سری سوالات بی جواب تجمعات شبانه😃
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342394
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342394_1780054364.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: JPMorgan CEO Jamie Dimon pushes back on NYC Mayor Mamdani’s calls for higher taxes, arguing that politicians should focus on fixing government rather than seeking tax hikes.
+
+“Good policy is free.”
+
+“Don’t try to raise more taxes or spend more money. Sit down and fix policy. And I think you can grow 1% faster. I literally believe that.”
+
+“It’s frustrating. It hurts. It’s embarrassing. And it always hurts the civilians of our country.”
+
+“He’s running a city of 300,000 employees now. He’s never had a job like that.”
+
+“And I’ve seen mayors who’ve failed abysmally because they can’t administer themselves out of a paper bag, or because ideology blinds them to practical, realistic, real-world policy.”
+
+Dimon described his recent meeting with Mamdani as “pleasant,” saying, “I said everything I wanted to say,” and offering that if he could help him, he’d “be happy to do that.”
+
+@MorningsMaria @MariaBartiromo
+</div>
+
+## IranIntlTV — post 339559
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339559_1780054366.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقام‌های اوکراینی اعلام کردند یک کشتی باری ترکیه در دریای سیاه هدف حمله پهپادی قرار گرفت. بر اساس این گزارش، در این حمله دو خدمه کشتی زخمی شدند و نیروهای امدادی برای جلوگیری از گسترش آتش‌سوزی به منطقه اعزام شدند.
+در حادثه‌ای جداگانه، سه نفتکش خالی در سواحل شمالی ترکیه در دریای سیاه، در نزدیکی استان سینوپ، هدف حمله پهپادی قرار گرفتند.
+
+نرگس هورخش، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339558
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339558_1780054368.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقام‌های اوکراینی اعلام کردند یک کشتی باری ترکیه در دریای سیاه هدف حمله پهپادی قرار گرفت. بر اساس این گزارش، در این حمله دو خدمه کشتی زخمی شدند و نیروهای امدادی برای جلوگیری از گسترش آتش‌سوزی به منطقه اعزام شدند.
+در حادثه‌ای جداگانه، سه نفتکش خالی در سواحل شمالی ترکیه در دریای سیاه، در نزدیکی استان سینوپ، هدف حمله پهپادی قرار گرفتند.
+
+نرگس هورخش، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 218969
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_218969_1780054369.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری دولتی ایسنا با انتشار گزارشی اعلام کرد که وزارت مسکن، تحقق پروژه‌های «مسکن مهر» و «نهضت ملی مسکن» را شکست خورده می‌داند و به همین دلیل، دولت به ساخت واحدهای مسکونی و اجاره به مستاجران روی آورد که تحقق این طرح نیز در هاله‌ای از ابهام قرار دارد.
+
+خبرگزاری ایسنا در گزارش خود نوشت که دولت‌های نهم و دهم تنها ۶۸۰ هزار واحد ساختند و دولت سیزدهم نیز با طرح نهضت ملی مسکن، تنها به ۳۷۳ هزار واحد، وام بانکی پرداخت کرد.
+
+در گزارش ایسنا آماده است که پیش از جنگ، هزینه ساخت مسکن متری ۳۰ میلیون تومان بود، اما در حال حاضر نرخ مصالح ساختمانی، ۷۰ درصد افزایش یافته است.
+
+بهمن ماه سال قبل اعلام شده بود که به زودی ثبت نام طرح مسکن استیجاری عمومی آغاز می‌شود، اما با وقوع جنگ این برنامه به تعویق افتاد. حبیب طاهرخانی، معاون وزیر راه و شهرسازی، زمان دقیقی برای اجرای این طرح اعلام نکرده و تنها گفته است که «به زودی ثبت‌نام آغاز خواهد شد.»
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125272
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125272_1780054370.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 یک شهروند بلوچ در زندان وکیل‌آباد مشهد اعدام شد
+ 
+بر اساس گزارش "حال‌ وش" که در حوزه اخبار مربوط به بلوچ‌ها فعالیت می‌کند، هویت یک شهروند بلوچ اعدام‌شده در زندان وکیل‌آباد مشهد احراز شد.
+ 
+طبق اطلاعات منتشرشده، این فرد جواد غفران تالب (شاهوزهی) نام دارد، حدود ۲۴ سال سن داشته و در ارتباط با پرونده‌های مواد مخدر اعدام شده است. او متاهل و دارای سه فرزند بوده و اهل زاهدان و ساکن مشهد معرفی شده است.
+ 
+بر اساس این گزارش، اجرای حکم بدون اطلاع‌رسانی قبلی به خانواده و بدون امکان ملاقات آخر انجام شده است. خانواده او نیز از زمان دقیق و جزئیات اجرای حکم بی‌اطلاع بوده‌اند.
+ 
+این جوان بلوچ از سال ۱۳۹۸ بازداشت و پس از طی روند قضایی در دادگاه انقلاب مشهد به اعدام محکوم شده بود. حال‌وش نوشته است که خبر این اعدام به دلیل قطعی اینترنت با تأخیر منتشر شده است.
+ 
+در گزارش حال‌‌وش آمده است که هم‌زمان با اعدام شاهوزهی، دو زندانی دیگر نیز در همان سحرگاه اعدام شده‌اند که هویت آنان هنوز مشخص نشده است. این رسانه همچنین فیلمی از تشییع جنازه جواد شاهوزهی نیز منتشر کرده است.
+@dw_farsi
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 14:52
 ---
 
