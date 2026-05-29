@@ -7,6 +7,68 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 02:22
+---
+
+## VahidOOnLine — post 242841
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری تسنیم، وابسته به سپاه پاسداران، بامداد شنبه ۹ خرداد با انتشار تصاویری مدعی شد بقایای یک پهپاد متعلق به آمریکا و اسرائیل که در حوالی قشم هدف قرار گرفته، کشف شده است. تسنیم بیان کرد این پهپاد پس از شناسایی یک ریزپرنده در حوالی قشم، با واکنش پدافند هوایی ارتش هدف قرار گرفت و منهدم شد.
+پیش از این، خبرنگار صدا و سیما در قشم نیز از فعال شدن سامانه پدافند هوایی در این منطقه خبر داده بود. هم‌زمان، خبرگزاری مهر به نقل از منابع محلی گزارش داد یک ریزپرنده در حوالی قشم از سوی پدافند هوایی هدف قرار گرفته و منهدم شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12921
+
+<div align="center">
+  <a href="telegram/content/WithYashar_12921_1780095179.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گلزار: نماز میخونم و شبا هم هر موقع بیدار شم شروع میکنم به دعا کردن
+@withyashar 🥶
+</div>
+
+## WithYashar — post 12920
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام کاخ سفید در گفت‌و‌گو با خبرنگار شبکۀ الجزیره مدعی شد: دونالد ترامپ هیچ توافقی را امضا نخواهد کرد مگر آنکه این توافق مطالبات آمریکا را تأمین کرده و با خطوط قرمز تعیین‌شده از سوی او همخوانی داشته باشد.
+«واشنگتن هرگز اجازه نخواهد داد ایران به سلاح هسته‌ای دست پیدا کند».
+@withyashar
+</div>
+
+## VahidOnline — post 75798
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_75798_1780095181.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، بامداد شنبه ۹ خرداد با انتشار تصاویری مدعی شد بقایای یک پهپاد متعلق به آمریکا و اسرائیل که در حوالی قشم هدف قرار گرفته، کشف شده است.
+تسنیم بیان کرد این پهپاد با واکنش پدافند هوایی ارتش هدف قرار گرفت و منهدم شد.
+پیش از این خبرگزاری مهر به نقل از منابع محلی گزارش داد یک ریزپرنده در حوالی قشم از سوی پدافند هوایی هدف قرار گرفته و منهدم شده است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## Persian_Trend_Official — post 15304
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15304_1780095182.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🌃
+
+Mig-25 Foxbat vs F-15 Eagle
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 02:12
 ---
 
