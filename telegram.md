@@ -7,6 +7,143 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 16:02
+---
+
+## FoxNewsTwitter — post 342398
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342398_1780057975.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: President Trump launches a scathing attack on Jill Biden after she admitted that she thought her husband was having a "stroke" during their infamous 2024 presidential debate.
+
+“She said that she thought he was having a ‘stroke,’ and various other really bad things, and yet never rushed onto the stage to help her troubled husband, as any good wife would do.”
+
+“As many have asked, did my strong performance in that debate cause him to, plain and simple, ‘choke,’ leading to his ignominious defeat, or were there other reasons? Nobody else knows the answer to that, BUT I DO!!!” https://twitter.com/FoxNews/status/2059806402294542554#m
+</div>
+
+## FoxNewsTwitter — post 342397
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342397_1780057975.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Early morning PT with America’s bravest.
+
+Secretary of War Pete Hegseth kicks off his day by working out alongside U.S. troops aboard the USS Boxer while docked in Singapore.
+</div>
+
+## IranIntlTV — post 339569
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻پس از حذف یانیک سینر؛ چه کسی قهرمان رولان‌گاروس می‌شود؟
+
+حذف غیرمنتظره یانیک سینر، نفر اول جهان و اصلی‌ترین مدعی قهرمانی، معادلات بخش مردان رولان‌گاروس را کاملا تغییر داده است.
+
+سینر که در دیدار با خوان مانوئل سروندولو دو ست جلو بود و تنها چهار امتیاز تا پیروزی فاصله داشت، تحت تاثیر گرما و شرایط جسمانی خود بازی را واگذار کرد تا رویای فتح نخستین عنوان رولان‌گاروس و تکمیل گرنداسلم حرفه‌ای‌اش از بین برود.
+
+از سوی دیگر، کارلوس آلکاراس، قهرمان دو دوره اخیر مسابقات، نیز به دلیل مصدومیت مچ دست اصلا به پاریس نرسید.
+
+در چنین شرایطی، بسیاری از تحلیلگران نشریه اتلتیک، الکساندر زورف را جدی‌ترین گزینه قهرمانی می‌دانند. تنیسور آلمانی که تاکنون سه فینال گرنداسلم را با شکست پشت سر گذاشته، یکی از بهترین بازیکنان حال حاضر روی خاک رس محسوب می‌شود و حالا شاید بهترین فرصت دوران حرفه‌ای خود را برای فتح نخستین گرنداسلم در اختیار داشته باشد.
+
+در کنار زورف، نام نواک جوکوویچ نیز به‌عنوان یکی از مدعیان اصلی مطرح شده است. اسطوره صربستانی با ۲۴ عنوان گرنداسلم و چهار قهرمانی در رولان‌گاروس، تجربه‌ای بی‌نظیر در استفاده از فرصت‌های بزرگ دارد. بسیاری معتقدند جوکوویچ ۳۹ ساله این شرایط را بهترین شانس خود برای کسب بیست‌وپنجمین گرنداسلم دوران حرفه‌ای‌اش می‌بیند.
+
+کاسپر رود، نایب‌قهرمان دو دوره رولان‌گاروس، نیز همچنان در جمع مدعیان قرار دارد، اما برخی کارشناسان معتقدند مسیر دشوار او در جدول ممکن است انرژی زیادی از این تنیسور نروژی بگیرد. در همین حال، نام‌های غیرمنتظره‌ای مانند لرنر تین آمریکایی و موئیز کوامه ۱۷ ساله فرانسوی نیز به‌عنوان شگفتی‌سازان احتمالی مسابقات مطرح شده‌اند.
+
+در مجموع، کارشناسان بر این باورند که با حذف سینر و غیبت آلکاراس، رولان‌گاروس ۲۰۲۶ به یکی از غیرقابل‌پیش‌بینی‌ترین گرنداسلم‌های سال‌های اخیر تبدیل شده و رقابت برای فتح جام موسکتیرها اکنون بیش از هر زمان دیگری هیجان‌انگیز است.
+
+🔗وب‌سایت ایران‌اینترنشنال
+
+@iranintltv
+</div>
+
+## IranianMinds — post 21010
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 طبق گزارشات مقامات، ترامپ تا وقتی رژیم جمهوری اسلامی به طور کامل به شرط های آمریکا تن ندهد، این توافق را امضا نخواهد کرد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21009
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سی ان ان:
+
+رئیس‌جمهور آمریکا ترامپ به مشاوران خود اطلاع داده است که برای تصمیم‌گیری درباره امضای احتمالی توافق با ایران به چند روز زمان نیاز دارد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21008
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ثبت نام کن ۵۰۰ هزارتومان جایزه بگیر
+نیازی هم به واریز نیست
+تنها سایت مورد #تایید ما با بونوس های واقعی:
+
+🌐 Winro.io 
+🌐
+</div>
+
+## IranianMinds — post 21007
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21007_1780057978.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ بدون واریز شرط ببند و بازی کن چون وینرو با ثبت نام و بدون نیاز به واریز ۵۰۰هزارتومان بهت میده 
+❌
+
+
+🎉 500 هزارتومن رایگان فقط با ثبت نام بدون هیچگونه واریزی!
+
+
+💳 پرداخت مستقیم و سریع بدون واسطه، بدون دردسر، واریز و برداشت در سریع‌ترین زمان ممکن
+
+
+⌛ پشتیبانی 24 ساعته
+
+
+🌐 Winro.io
+
+🌐 Winro.io
+کانال بونوس های رایگان r8
+
+📱 @winro_io
+</div>
+
+## alonews — post 123496
+
+<div align="center">
+  <a href="telegram/content/alonews_123496_1780057979.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای نیویورک‌تایمز درباره جزئیات توافق احتمالی ایران و آمریکا/ ۱ - آتش‌بس اولیه و پایان موقت خصومت‌ها
+
+
+🔴به نوشته نیویورک‌تایمز، یکی از محورهای اصلی پیش‌نویس، تعیین شرایطی شبیه پیمان عدم تجاوز میان واشنگتن و تهران است. واسطه‌ها می‌گویند انتظار می‌رود این توافق دارای یک مؤلفه منطقه‌ای نیز باشد؛ موضوعی که به گفته مقام‌های ایرانی و یکی از دیپلمات‌های آگاه، شامل توقف جنگ در لبنان هم می‌شود.
+
+
+🔴دو دیپلمات مطلع از آخرین شرایط گفته‌اند توافق اولیه، پایان خصومت‌ها را برای یک دوره ابتدایی ۶۰ روزه تعیین می‌کند و امکان مذاکره میان دو طرف برای تمدید آن را فراهم می‌سازد.
+
+
+🔴با این حال، مقام ایرانیِ مطلع از پیش‌نویس می‌گوید متن مورد بحث شامل «اعلام پایان جنگ» در همه جبهه‌ها، از جمله لبنان، برای کل مدت مذاکرات است. دو مقام ایرانی نیز گفته‌اند مفاد این یادداشت تفاهم صرفاً مربوط به دوره مذاکرات برای دستیابی به یک توافق گسترده‌تر و دائمی خواهد بود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 15:52
 ---
 
