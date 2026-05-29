@@ -7,6 +7,76 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 03:23
+---
+
+## VahidOOnLine — post 242845
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242845_1780098811.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فرماندهی مرکزی ایالات متحده، سنتکام، روز جمعه، با انتشار تصاویری در اکس، از اجرای موفقیت‌آمیز عملیات پرواز شبانه توسط ملوانان آمریکایی بر فراز ناو هواپیمابر «یو‌اس‌اس جرج اچ.دبلیو بوش» خبر داد. سنتکام با تمجید از آمادگی نیروهای خود اعلام کرد که در این مانور، خلبانان بسیار ماهر آمریکایی موفق شدند در تاریکی نزدیک به مطلق، پرنده‌های خود را بر روی عرشه کوچک این ناو که در میان امواج دریا در حال تکان خوردن و چرخیدن بود، به سلامت فرود آورند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12922
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام: هر شناوری که در حال انجام یا حمایت از فعالیت‌ های مین‌گذاری در تنگهٔ هرمز دیده بشه، توسط ما هدف قرار خواهد گرفت!
+@withyashar
+</div>
+
+## IranIntlTV — post 339665
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339665_1780098812.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نهاد مدیریت آبراه خلیج فارس در واکنش به اقدام اخیر وزارت خزانه‌داری آمریکا در تحریم این نهاد، ضمن محکومیت این اقدام تاکید کرد: «تسلط بر تنگه هرمز را که در میدان و دیپلماسی به دست نیاوردید، با تحریم هم به دست نخواهید آورد.»
+این نهاد تحریم شدن از سوی «کشوری که رییس آن به دزدی دریایی افتخار می‌کند» را نشانه‌ای از «عملکرد مثبت» خود دانست و افزود: «علیرغم اقدامات تنش‌زای ایالات متحده در آب‌های خلیج فارس و دریای عمان، این نهاد در راستای تسهیل تردد، بی‌وقفه به بررسی و ارائه مجوز عبور به شناورهای غیرمتخاصم ادامه می‌دهد.»
+
+https://iranintl.com/202605291729
+</div>
+
+## Shin_Persian — post 6316
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6316_1780098813.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 29 May 2026 23:45:58 UTC
+
+Even Fars News and regime websites are barely accessible at the moment
+
+فارسی
+
+حتی خبرگزاری فارس و وب‌سایت‌های رژیم در حال حاضر به سختی در دسترس هستند.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6315
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 29 May 2026 23:44:20 UTC
+
+A number of users are reporting internet (FilterNet) disruption in Iran right now.
+
+فارسی
+
+تعدادی از کاربران در حال حاضر از اختلال در اینترنت (فیلترنت) در ایران خبر می‌دهند.
+
+𝕏 · @shin_persian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 03:13
 ---
 
