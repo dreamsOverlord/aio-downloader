@@ -7,6 +7,199 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 22:12
+---
+
+## VahidOOnLine — post 242809
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242809_1780080167.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️این روزها ویدیوهای متعددی از آمادگی بدنی نیروهای نظامی آمریکا و ورزش‌های وزیر جنگ این کشور از سوی ارتش آمریکا منتشر شده که توجه‌ها را به آمادگی بدنی پیت هگست جلب کرده است. در پی این انتشار این تصاویر یک عضو نیروی دریایی جمهوری اسلامی نیز تصاویری از ورزشهای انفرادی خود منتشر کرده و این تصاویر را به‌صورت مقایسه‌ای با تصاویر ورزش‌های نیروهای آمریکایی با هگست ترکیب کرده است. تمرین‌های این تفنگدار نیروی دریایی جمهوری اسلامی، در یک باشگاه خصوصی انجام شده و در پایگاه ارتش یا سپاه تصویربرداری نشده است.
+
+پیش از این بارها آماده نبودن بدنی فرماندهان ارتش و سپاه از سوی کاربران ایرانی مورد شوخی و طنز قرار گرفته است و پیش از شروع جنگ نیز بسیاری از کاربران مقایسه میان پیت هگست و فرماندهان نظامی جمهوری اسلامی را دستمایه ساخت محتواهای طنز قرار داده بودند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242808
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242808_1780080169.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم، وابسته به سپاه پاسداران گزارش داد که شامگاه جمعه، در پی رصد ریزپرنده متخاصم «دشمن آمریکایی-اسرائیلی» در حوالی قشم از سوی پدافند هوایی ارتش، مورد اصابت قرار گرفت و منهدم شد.
+پیش‌تر رسانه‌های ایران تصاویری از شلیک ممتد پدافند در محدوده قشم منتشر کرده بودند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12897
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای نوتیفیکیشن پولای بلوکه شدست دارن واریز میکنن 🤣
+@withyashar
+</div>
+
+## pm_afshaa — post 91861
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=87.248.129.210&port=4455&secret=7hYDAQIAAQAB_AMDhuJMOt1iaXNjb3R0aS55ZWt0YW5ldC5jb20
+
+پروکسی متصل سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91860
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دمت گرم از روزی که نت وص شده با کانفینگای کانال شما وصلم🌹🌹
+</div>
+
+## pm_afshaa — post 91859
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دمت گرم همه پروکسی هات وصله و کانفینگ هات عالین کانالت کلا حرف نداره داداش دمت گرم پر قدرت ادامه بده
+</div>
+
+## pm_afshaa — post 91858
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش جمهورى اسلامى از سرنگونی یک فروند پهپاد آمریکایی در آسمان جزیره قشم خبر داد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339631
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339631_1780080169.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۴ با فرداد فرحزاد
+@iranintltv
+</div>
+
+## IranIntlTV — post 339630
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339630_1780080170.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم، وابسته به سپاه پاسداران گزارش داد که شامگاه جمعه، در پی رصد ریزپرنده متخاصم «دشمن آمریکایی-اسرائیلی» در حوالی قشم از سوی پدافند هوایی ارتش، مورد اصابت قرار گرفت و منهدم شد.
+پیش‌تر رسانه‌های ایران تصاویری از شلیک ممتد پدافند در محدوده قشم منتشر کرده بودند.
+https://iranintl.com/202605297986
+</div>
+
+## FarsiVOA — post 219006
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219006_1780080171.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با فوران آتشفشان مایون در فیلیپین، یک شهاب‌سنگ از پشت این کوه عبور کرد.
+
+تصویری که از این لحظه ثبت شده، عبور شهاب‌سنگ از آسمان را در حالی نشان می‌دهد که گدازه‌های آتشفشان در حال فوران هستند. برخی گزارش‌ها از احتمال ثبت نخستین تصویر همزمان شهاب‌سنگ و آتشفشان فعال در یک قاب خبر داده‌اند.
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219005
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219005_1780080172.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر امور خارجه آمریکا، با انتشار این تصویر در اینستاگرام نوشت که به همراه همسرش، دیدار بسیار خوبی با متحدان و شرکای آمریکا در هند داشته است.
+
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15283
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15283_1780080172.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹تسنیم: انهدام پهپاد آمریکایی در حوالی قشم
+
+در پی رصد پهپاد آمریکایی در حوالی قشم توسط پدافند هوایی ارتش، بلافاصله در عملیات موفق مورد اصابت قرار گرفت و منهدم شد.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15282
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15282_1780080173.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز: تهران ممکن است با انتقال نیمی از ذخایر اورانیوم غنی‌شده ۶۰درصدی موافقت کند
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21037
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21037_1780080173.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قشم
+
+
+
+@IranianMinds
+</div>
+
+## idfinfarsi — post 11659
+
+<div align="center">
+  <a href="telegram/content/idfinfarsi_11659_1780080174.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مستندات ارتش اسرائیل ثابت میکنند: سازمان تروریستی حزب‌الله راکت‌هایی را شلیک کرده که به کلیسایی در جنوب لبنان اصابت کرده‌اند
+
+سازمان تروریستی حزب‌الله در طول شب (جمعه) چندین راکت شلیک کرد که به کلیسای ارتدوکس سنت جورج در جنوب لبنان اصابت کردند. این شلیک‌ها به ساختمان‌هایی در روستای مسیحی مرجعیون اصابت کردند — تأکید می‌شود که نیروهای ارتش اسرائیل در محدوده این کلیسا فعالیت نمی‌کنند.
+
+ارتش اسرائیل اکنون مستنداتی را منتشر می‌کند که اصابت راکت‌های سازمان تروریستی حزب‌الله به این کلیسا در جنوب لبنان را ثابت میکنند.
+
+این یک مدرک دیگر است که ثابت میکند که سازمان تروریستی حزب‌الله همچنان شهروندان لبنان را به خطر انداخته و به آن‌ها آسیب می‌زند.
+</div>
+
+## alonews — post 123559
+
+<div align="center">
+  <a href="telegram/content/alonews_123559_1780080176.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه تلویزیونی اسرائیل به نقل از یک منبع گزارش داد: هیئت اسرائیلی در مذاکرات پنتاگون پیشنهاد لبنان برای خروج از لبنان را رد کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 22:03
 ---
 
