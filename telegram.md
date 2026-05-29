@@ -7,6 +7,27 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 08:02
+---
+
+## FoxNewsTwitter — post 342391
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342391_1780029152.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A Blue Origin rocket exploded during a "hotfire test" at Cape Canaveral Space Force Station on Thursday night.
+
+Everyone has been accounted for and is safe, Jeff Bezos, the company's founder, said.
+
+NASA Administrator Jared Isaacman said he was aware of the incident, which he called an "anomaly," and the agency would provide information on any impacts to Artemis or Moon Base programs.
+
+"Spaceflight is unforgiving, and developing new heavy-lift launch capability is extraordinarily difficult. We will work with our partners to support a thorough investigation of this anomaly, assess near-term mission impacts, and get back to launching rockets," he said.
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 07:52
 ---
 
