@@ -7,6 +7,101 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 03:03
+---
+
+## VahidOOnLine — post 242844
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242844_1780097594.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️نیکی هیلی، سفیر پیشین آمریکا در سازمان ملل، با انتشار پیامی در اکس نوشت: «رژیم ایران هرگز با حسن نیت عمل نکرده است. همیشه همان بازی را ادامه می‌دهد؛ وقت‌کشی، خرید زمان و تغییر موضع.»
+هیلی افزود تا زمانی که دسترسی کامل و کنترل بر مواد هسته‌ای ایران به دست نیامده، نباید دارایی‌ها آزاد یا تحریم‌ها کاهش داده شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342416
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+👉 Full story here:
+</div>
+
+## FoxNewsTwitter — post 342415
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342415_1780097595.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+CodePink co-founder Medea Benjamin confirms Treasury Department inquiry into her group's Cuba convoy. The probe demands answers to 12 detailed questions about 170 participants, $600,000 in supplies, and every hour spent on the communist island, she said, acknowledging that "it's serious."
+</div>
+
+## IranianMinds — post 21054
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وضعیت :
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21053
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21053_1780097595.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ تا حالا بدون واریزی روی فوتبال ها شرط بستی؟!
+
+
+🎉 500 هزارتومن بونوس رایگان فقط با ثبت نام بدون هیچگونه واریزی!
+
+
+😮 تنها سایتی که با عضویت بدون واریز 500,000 تومان شارژ بی قیدو شرط میده #وینرو هست
+💰
+
+
+👑 #معتبرترین سایت ایرانی 
+⬇️
+
+🌐 Winro.io
+
+🌐 Winro.io
+
+📱کانال اخبار و هدایا a8 
+🎁
+
+📱 @winro_io
+</div>
+
+## BBCPersian — post 282357
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 حمایت کیهان کلهر از کسب‌وکارهای فرهنگی و هنری
+
+کیهان کلهر، موسیقی‌دان برجسته ایران صفحه اینستاگرامش را به مدت ۸۸ روز به تبلیغ و حمایت از کسب‌وکار اهالی فرهنگ و هنر اختصاص داد.
+
+او نوشت که این اقدام را به دلیل حمایت از آنهایی انجام می‌دهد که «در ماه‌های اخیر به‌دلیل قطع اینترنت دچار خسارت شده‌اند.»
+
+آقای کلهر تاکید کرده است که این فراخوان تنها شامل کسب‌وکارهای داخل ایران می‌شود.
+
+حکومت ایران در چند دهه گذشته اشاعه موسیقی را به شدت محدود کرد اما پس از گسترش شبکه‌های اجتماعی، هنرمندان به معرفی خود و آثارشان پرداختند و به این ترتیب بازار خوبی برای محصولات فرهنگی و هنری فراهم شد.
+
+پس از جنگ آمریکا و اسرائیل با ایران و قطعی کامل اینترنت برای بیش از هشتاد روز بسیاری از مشاغل مجازی به‌ویژه اهالی فرهنگ و هنر از فعالیت بازماندند که خسارات قابل توجهی به آنها وارد شده است.
+
+https://bbc.in/4vbIbjs
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 02:53
 ---
 
