@@ -7,6 +7,280 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 15:43
+---
+
+## WithYashar — post 12936
+
+<div align="center">
+  <a href="telegram/content/WithYashar_12936_1780143190.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست درباره ایران: ایران می‌خواهد بگوید که کنترل تنگه را در دست دارد، اما این ما هستیم.
+
+و همه چیز پشت صحنه نشان می‌دهد که وقتی صحبت از آن می‌شود، ما کنترل را در دست داریم.
+@withyashar
+</div>
+
+## pm_afshaa — post 91894
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پیت هگست:هر لحظه آماده ایم جنگ علیه ایران را از سر بگیریم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5139
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5139_1780143191.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 سرهنگ دوم بازنشسته نیروی هوایی محمد ضابطی با اشاره به سوابق خاندان ایران‌ساز پهلوی می‌گوید، تنها منجی ایران شاهزاده رضا پهلوی است.
+
+#شاهزاده_رضا_پهلوی #خاندان_ایرانساز_پهلوی
+@DEJradio
+</div>
+
+## IranIntlTV — post 339731
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339731_1780143193.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان ساکن استکهلم شنبه در تجمع همبستگی ایرانیان خارج از کشور با انقلاب ملی، با اجرای یک پرفورمنس اعتراضی به صدور حکم اعدام برای «بچه‌های اکباتان» و خطر اجرای این احکام واکنش نشان دادند.
+
+گزارش مهران عباسیان، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339730
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339730_1780143194.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از شرکت‌کنندگان در تجمع ایرانیان در استکهلم به ایران‌اینترنشنال گفت: «هم‌بستگی میان ایرانیان به‌صورت خودجوش شکل گرفته و شمار شرکت‌کنندگان در تجمع‌های این شهر هر هفته افزایش می‌یابد.»
+شرکت‌کننده دیگری نیز گفت مردم ایران تنها نیستند و فداکاری‌ها و هزینه‌های سنگینی که پرداخته‌اند، هرگز فراموش نخواهد شد.
+
+گزارش مهران عباسیان، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 219066
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219066_1780143196.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ایالات متحده، سنتکام، تصویری از یک جنگنده «اف-۱۶ فایتینگ فالکن» نیروی هوایی آمریکا در حال پرواز بر فراز خاورمیانه در جریان یک ماموریت گشت‌زنی را منتشر کرد.
+
+سنتکام اعلام کرد که نیروهای آمریکا همچنان در سراسر منطقه حضور دارند و در حالت آماده‌باش باقی مانده‌اند.
+
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15335
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15335_1780143196.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مشاهده شدن مین دریایی در حریم آبی عمان!
+
+مرکز امنیت دریایی عمان: به دلیل مشاهده یک جسم شناور که احتمال می‌رود مین دریایی باشد در غرب منطقه ترافیک ساحلی در تنگه هرمز در داخل آب‌های سرزمینی عمان، مرکز امنیت دریایی از تمامی دریانوردان، ماهیگیران و شناورها درخواست می‌کند هنگام عبور از این منطقه نهایت احتیاط را به عمل آورند.
+
+به همه کاربران دریایی توصیه می‌شود فاصله ایمن از هر جسم مشکوک را حفظ کرده و فوراً آن را به مراجع ذی‌ربط گزارش دهند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15334
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15334_1780143196.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر جنگ آمریکا: محاصره ایران هنوز کاملاً پابرجاست.
+
+آینده انرژی در واقع آینده‌ آمریکایی است و این برای امنیت انرژی در سراسر جهان خوب است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 282429
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻قوه قضائیه اموال بیش از ۱۰۰ شهروند ایرانی را در خراسان جنوبی و گلستان توقیف کرد
+
+بنابر اعلام دادگستری خراسان جنوبی اموال ۳۴ شهروند ایرانی در این استان توقیف شده است.
+
+دادگستری این استان از این افراد به عنوان «عنصر خائن به کشور» و «حامی» آمریکا و اسرائیل یاد کرده است.
+
+بر اساس اعلام این نهاد، دارایی‌های توقیف شده شامل اموال منقول و غیرمنقول، حساب‌های بانکی، املاک ثبتی و آپارتمان و خودروی سواری بوده است.
+
+قوه قضائیه همچنین گفته است اموال ۷۴ نفر دیگر هم در استان گلستان توقیف شده است؛ همه این افراد در خارج از کشور سکونت دارند.
+
+پس از اعتراضات دی‌ماه و کشتار معترضان، شمار زیادی از شهروندان ایرانی در خارج از کشور در تجمعات اعتراضی در شهرهای مختلف شرکت کردند که این اعتراضات در هفته‌های منتهی به جنگ و بعد از آن هم ادامه یافت.
+
+قوه قضائیه پس از جنگ آمریکا و اسرائیل با ایران، با استناد به قانون «تشدید مجازات جاسوسی» معترضان و مخالفان را به «همراهی با دشمن» متهم کرد.
+
+اما این توقیف‌ها به موضوع جنگ محدود نیست؛ در زمان اعتراضات دی‌ماه هم اموال بعضی از چهره‌های شناخته شده در داخل ایران ضبط شد.
+
+فعالان مجازی حامی جمهوری اسلامی در جریان جنگ اخیر، اقدام به فراخوان‌هایی برای معرفی مخالفان جمهوری اسلامی که آنها را «حامی جنگ» نامیدند، کردند.
+
+@BBCPersian
+</div>
+
+## alonews — post 123695
+
+<div align="center">
+  <a href="telegram/content/alonews_123695_1780143198.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هگست : ما هنوز کارای جهانی‌مون رو داریم؛ مثلاً اینکه ایران نباید به سلاح هسته‌ای برسه، روش هم تمرکز داریم، در کنارش می‌تونیم چندتا کار رو هم‌زمان پیش ببریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123694
+
+<div align="center">
+  <a href="telegram/content/alonews_123694_1780143198.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیدان: اولویت مذاکرات بین تهران و واشنگتن حل مساله تنگه هرمز است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123693
+
+<div align="center">
+  <a href="telegram/content/alonews_123693_1780143198.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پیت هگست، وزیر جنگ آمریکا؛ : آمریکا با نخست‌وزیر پاکستان و فرمانده ارتش‌شون «دوستی واقعی» داره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123692
+
+<div align="center">
+  <a href="telegram/content/alonews_123692_1780143199.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرانسه: درصدد ساخت یک ناو هواپیمابر هسته‌ای جدید برای تقویت حضور دریایی استراتژیک هستیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123690
+
+<div align="center">
+  <a href="telegram/content/alonews_123690_1780143200.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈انهدام مهمات عمل‌نکرده در حومه بندرعباس از یکشنبه ۱۰ خرداد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123689
+
+<div align="center">
+  <a href="telegram/content/alonews_123689_1780143200.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / وزیر جنگ آمریکا: هر لحظه آماده ایم جنگ علیه ایران را از سر بگیریم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123688
+
+<div align="center">
+  <a href="telegram/content/alonews_123688_1780143200.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 پیت هگستث: سیاست ما در مورد تایوان همان است که در ابتدای این دولت بود.
+
+
+🔴تنها تغییری که ممکن است ببینید نحوه صحبت ما درباره کل آن است.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123687
+
+<div align="center">
+  <a href="telegram/content/alonews_123687_1780143201.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 پیت هگست درباره ایران: ایران می‌خواهد بگوید که کنترل تنگه را در دست دارد، اما این ما هستیم.
+
+
+🔴و همه چیز پشت صحنه نشان می‌دهد که وقتی صحبت از آن می‌شود، ما کنترل را در دست داریم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123686
+
+<div align="center">
+  <a href="telegram/content/alonews_123686_1780143203.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 واشنگتن پست: افشای پیام‌های داخلی؛ تلاش پنتاگون برای استخدام سربازان به عنوان تماشاگر در مسابقات UFC کاخ سفید
+
+
+
+🔴بر اساس گزارش روزنامه واشنگتن پست، اسناد و یادداشت‌های داخلی نشان می‌دهند که پنتاگون در حال جذب و استخدام نیروهای نظامی است تا به عنوان تماشاگر در رویداد مسابقات UFC (هنرهای رزمی ترکیبی) دونالد ترامپ در محوطه کاخ سفید حضور پیدا کنند.
+
+
+🔴 طبق مفاد این پیام‌های داخلی، پرسنل نظامی متقاضی باید شخصاً هزینه سفر و اقامت خود را پرداخت کنند.
+
+
+🔴 علاوه بر این، داوطلبان برای واجد شرایط شدن و حضور در این مراسم، باید معیارهای سخت‌گیرانه و مشخصی از آمادگی و ظاهر جسمانی را دارا باشند.
+
+﻿
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123685
+
+<div align="center">
+  <a href="telegram/content/alonews_123685_1780143203.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عضو کمیسیون انرژی مجلس: یک سوم ظرفیت تولید گاز در جنگ اخیر از دست رفت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 15:33
 ---
 
