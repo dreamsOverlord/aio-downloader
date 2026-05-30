@@ -7,6 +7,80 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 23:53
+---
+
+## VahidOOnLine — post 242950
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242950_1780172627.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی شیرازی، رییس سازمان عقیدتی سیاسی انتظامی گفت: «بر عهد خود برای تداوم راه ولایت و مطالبه انتقام سخت از عاملان به شهادت رساندن رهبرمان پایبندیم.»
+
+او افزود: «نهادهای مسئول باید پیگیری حقوقی و بین‌المللی این جنایت را در اولویت قرار داده و حکم الهی برای قاتلان امام شهید را در ملاعام اجرا کنند.»
+
+شیرازی ادامه داد: «ملت ما تا زمان قصاص قاتلان امام خود و خروج کامل استکبار از منطقه، میدان‌های مبارزه را ترک نخواهند کرد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 339788
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339788_1780172628.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی شیرازی، رییس سازمان عقیدتی سیاسی انتظامی گفت: «بر عهد خود برای تداوم راه ولایت و مطالبه انتقام سخت از عاملان به شهادت رساندن رهبرمان پایبندیم.»
+
+او افزود: «نهادهای مسئول باید پیگیری حقوقی و بین‌المللی این جنایت را در اولویت قرار داده و حکم الهی برای قاتلان امام شهید را در ملاعام اجرا کنند.»
+
+شیرازی ادامه داد: «ملت ما تا زمان قصاص قاتلان امام خود و خروج کامل استکبار از منطقه، میدان‌های مبارزه را ترک نخواهند کرد.»
+https://iranintl.com/202605304918
+</div>
+
+## alonews — post 123819
+
+<div align="center">
+  <a href="telegram/content/alonews_123819_1780172630.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی کمیسیون امنیت ملی:
+پیشرفت‌هایی در مذاکرات وجود دارد و ما این را انکار نمی‌کنیم، اما باید مراقب باشیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123818
+
+<div align="center">
+  <a href="telegram/content/alonews_123818_1780172630.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ در تروث‌سوشال: موزه ریاست جمهوری اوباما
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123817
+
+<div align="center">
+  <a href="telegram/content/alonews_123817_1780172630.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💔جاویدنام حديثه اكبرزاده ، 18 دی در فرديس كرج با شليک مستقیم گلوله به سينه‌اش آسمانی شد.
+
+
+🤔عرزشی حرام زاده این دختر ایرانی تروریست بود؟ ظلم پایدار نیست به وقتش سر عزیزان شما هم میاد.
+
+
+✅@AloNews
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 23:43
 ---
 
