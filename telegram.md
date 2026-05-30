@@ -7,6 +7,57 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 01:32
+---
+
+## VahidOOnLine — post 242960
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242960_1780178553.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش فارس، خبرگزاری وابسته به سپاه، اسماعیل بقایی، سخنگوی وزارت خارجه روز شنبه با محمد اکرمی‌نیا، سخنگوی ارتش جمهوری اسلامی دیدار و گفتگو کرد. براساس این گزارش، بقایی در این دیدار گفت: «قدرت و اقتدار نیروهای مسلح پشتوانه محکم وزارت خارجه در صیانت از منافع ایران در عرصه دیپلماسی است».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 339797
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339797_1780178554.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «شاهزاده رضا پهلوی مهم‌ترین چهره‌ اپوزیسیون است که به طور گسترده و مکرر در سطح بین‌المللی صدای مردم ایران را به گوش دنیا می‌رساند و درباره واقعیت‌های داخل ایران سخن می‌گوید. این اقدام تلاشی موثر در جهت همراه کردن جهان با خواست ملت ایران برای تغییر رژیم است.»
+@iranintltv
+</div>
+
+## IranianMinds — post 21094
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21094_1780178555.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو فرانسه مردم کسخل شدن و بعد از قهرمانی پاری‌سن‌ ژرمن تو چمپیونزلیگ، هوادارای این تیم از فرصت سو استفاده کردن و ریختن تو خیابونای پاریس و با آتیش زدن ماشین‌ها، اتوبوس‌ها، وسایل عمومی و... دست به تجمع اعتراضی زدن و با نیروهای پلیس درگیر شدن.
+
+چندین نفر هم دستگیر شدن تا الان
+
+@IranianMinds
+</div>
+
+## alonews — post 123837
+
+<div align="center">
+  <a href="telegram/content/alonews_123837_1780178557.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ بازهم رگباری پست گذاشت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 01:22
 ---
 
