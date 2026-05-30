@@ -7,6 +7,37 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 02:52
+---
+
+## VahidOOnLine — post 242966
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242966_1780183360.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز شنبه با انتشار تصویر گرافیکی تولیدشده با هوش مصنوعی در شبکه اجتماعی «تروث سوشال»، توجه رسانه‌ها را به خود جلب کرد. در این تصویر ترامپ در جامه یک فرمانده نظامی ارشد با نشان عقاب طلایی آمریکا به تصویر کشیده شده که با انگشت به مخاطب اشاره می‌کند. در پس‌زمینه این طرح، نمادهای قدرت نظامی ایالات متحده از جمله جنگنده‌های پیشرفته در حال صعود و ناوشکن‌ها در کنار کشتی‌های بادبانی تاریخی با پرچم برافراشته آمریکا در میان موج‌های خروشان دریا دیده می‌شوند. ترامپ در حاشیه این تصویر نوشت: «شما دارید گیج و سردرگم می‌شوید».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342437
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342437_1780183362.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A suspected drug-trafficking boat erupts into flames after being struck by U.S. forces in the eastern Pacific.
+
+New video, released by U.S. Southern Command, shows the moment the vessel is hit during an operation carried out Friday.
+
+SOUTHCOM says three "male narco-terrorists" were killed in the strike.
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 02:42
 ---
 
