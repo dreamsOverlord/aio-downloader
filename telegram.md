@@ -7,6 +7,27 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 01:02
+---
+
+## WithYashar — post 12968
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar JangHub
+</div>
+
+## IranIntlTV — post 339792
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339792_1780176747.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «ترامپ قرار بود جمعه درباره توافق با جمهوری اسلامی تصمیم بگیرد اما این تصمیم به تاخیر افتاده و معلوم نیست در نهایت او با جمهوری اسلامی تفاهم کند برای مذاکرات بیشتر یا نه. به نظر می‌رسد ترامپ درباره قضاوت افکار عمومی نسبت به این تفاهم مردد است.»
+@iranintltv
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 00:52
 ---
 
