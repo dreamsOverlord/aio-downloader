@@ -7,6 +7,165 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 10:13
+---
+
+## VahidOOnLine — post 242885
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242885_1780123382.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد خودروهای حامیان حکومت در مسیر چالوس به رامسر در استان مازندران با حمل پرچم‌های حزب‌الله و جمهوری اسلامی برای تردد مردم در یکی از خطوط جاده آزار ترافیکی ایجاد کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242884
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242884_1780123386.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مارک کارنی، نخست وزیر کانادا، روز شنبه نهم خرداد در اتاوا با وانگ یی، وزیر امور خارجه چین دیدار کرد.
+
+این دیدار نخستین گام در تنش‌زدایی در روابط کانادا با چین، پس از یک دهه مناسبات سرد دیپلماتیک و در اوج تشدید رقابت‌ها میان پکن و واشنگتن به شمار می‌رود.
+کانادا از زمان به‌قدرت رسیدن مارک کارنی در انتخابات سال گذشته و در واکنش به درخواست‌های ترامپ برای الحاق این کشور به آمریکا و افزایش تعرفه‌ها، سیاستی دوری از همسایه قدرتمند خود را در پیش گرفته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12923
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12923_1780123388.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پزشک ترامپ: «دست دادن مکرر»، علت کبودی دست‌های رئیس‌جمهور آمریکا است
+
+این یک اثر شایع و خوش‌خیم است
+@withyashar
+</div>
+
+## IranIntlTV — post 339697
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339697_1780123389.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد خودروهای حامیان حکومت در مسیر چالوس به رامسر در استان مازندران با حمل پرچم‌های حزب‌الله و جمهوری اسلامی برای تردد مردم در یکی از خطوط جاده آزار ترافیکی ایجاد کردند.
+</div>
+
+## FarsiVOA — post 219042
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219042_1780123392.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دبیرکل صنف کارفرمایان صنعت سیمان ایران از ابلاغیه جدید وزارت نیرو مبنی بر اعمال «محدودیت‌های گسترده» در تأمین برق صنایع سیمان خبر داد.
+
+علی اکبر الوندیان می‌گوید در ماه‌های خرداد و شهریور تنها ۴۰ درصد از برق مورد نیاز تأمین خواهد شد و در تیر و مرداد این میزان به ۱۵ درصد کاهش می‌یابد.
+
+او گفت این میزان محدودیت، در عمل کارخانه‌ها را مجبور به توقف تولید خواهد کرد.
+
+ایران به خاطر عدم تحقق برنامه‌های رشد تولید برق، هر سال با کسری فزاینده برق مواجه می‌شود. دولت در پیک مصرف تابستانی برق صنایع را محدود و برنامه خاموشی‌های بخش خانگی را اعمال می‌کند.
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 390539
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390539_1780123393.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بزرگترین سوال بی جواب از جمهوری اسلامی ملایان!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390538
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390538_1780123396.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مداحی سوزناک «من به یادت» برای عاغا موشعلی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390537
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پولدار بودن خیلی خوبه.
+درستو میخونی، زبانتو فول میکنی، هر تخصص یا هنری رو دلت بخواد یاد میگیری، باشگاه میری به هیکلت میرسی،
+به دوست دختر/پسرت میرسی،
+سفرتو میری،
+تفریحتو داری.
+تهشم از اراده ات حرف میزنی.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 123615
+
+<div align="center">
+  <a href="telegram/content/alonews_123615_1780123398.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بلومبرگ: پنج پرسنل نظامی آمریکایی و پیمانکار پس از آنکه آوار ناشی از موشک بالستیک فاتح-۱۱۰ ایران که رهگیری شده بود، پایگاه هوایی علی الصالح کویت را هدف قرار داد، مجروح شدند. یک پهپاد MQ-9A ریپر نابود شد و دیگری آسیب دید. جراحات تهدیدکننده جان نیستند؛ این حادثه پیش‌تر فاش نشده بود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123614
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جهت رزرو تبلیغات در کانال #الونیوز به کانال زیر مراجعه کنید👇
+
+
+📃https://t.me/ads_alonews
+
+📃https://t.me/ads_alonews
+</div>
+
+## alonews — post 123613
+
+<div align="center">
+  <a href="telegram/content/alonews_123613_1780123399.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای وال استریت ژورنال: موج کوچکی از کشتی‌ها در تاریکی مطلق در حال عبور از تنگه هرمز هستند و بدون چراغ یا سیستم‌های ناوبری خودکار و با کمک ارتش ایالات متحده، از این آبراه خطرناک عبور می‌کنند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123612
+
+<div align="center">
+  <a href="telegram/content/alonews_123612_1780123399.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ابراهیم عزیزی رئیس کمیسیون امنیت ملی مجلس ایران در گفتگو با ریانووستی: ایران همواره برای شرکای خود احترام ویژه‌ای قائل بوده‎ و خواهد بود.
+
+
+🔴 روسیه و چین به عنوان شرکای راهبردی ایران در موضوع تردد شناورهایشان در تنگه هرمز مورد اقدام مثبت بوده و خواهند بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 10:03
 ---
 
