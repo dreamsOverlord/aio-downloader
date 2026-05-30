@@ -7,6 +7,136 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 23:23
+---
+
+## VahidOOnLine — post 242948
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242948_1780170832.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تیم فوتبال پاری‌سن‌ژرمن با پیروزی برابر آرسنال در فینال لیگ قهرمانان اروپا، برای دومین فصل متوالی عنوان قهرمانی این رقابت‌ها را به دست آورد.
+این دیدار در وقت‌های قانونی و اضافه با تساوی ۱-۱ به پایان رسید؛ جایی که کای هاورتز در دقیقه ۵ آرسنال را پیش انداخت، اما عثمان دمبله در دقیقه ۶۵ از روی نقطه پنالتی کار را به تساوی کشاند تا بازی به وقت‌های اضافه کشیده شود.
+در نهایت، سرنوشت قهرمان در ضربات پنالتی مشخص شد و پاری‌سن‌ژرمن با نتیجه ۴ بر ۳ به پیروزی رسید تا جام را بالای سر ببرد.
+این نخستین بار از سال ۲۰۱۶ بود که فینال لیگ قهرمانان اروپا به وقت‌های اضافه کشیده می‌شد؛ دیداری که با هیجان بالا و رقابت نزدیک دو تیم، به یکی از به‌یادماندنی‌ترین فینال‌های سال‌های اخیر تبدیل شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12962
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدید بوگاتی شاه https://www.instagram.com/reel/DY-ObumIJEK/?igsh=MjQ5cGt6dWo0dGg= کارای اداریش رو انجام بدید 💥
+</div>
+
+## WithYashar — post 12961
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی حملات سنگین حزب‌الله، به بیمارستانی در شهر نهاریا در شمال اسرائیل دستور داده شد تا بیماران را به تأسیسات زیرزمینی منتقل کند.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342433
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342433_1780170833.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Spencer Pratt keeps blasting his celebrity critics.
+
+The Los Angeles mayoral candidate responded after 'Hacks' star Hannah Einbinder claimed money was the key issue for a lot of his supporters.
+
+"She's in an elite minority and the rest of us want change," Pratt said.
+</div>
+
+## FarsiVOA — post 219124
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺نخست وزیر لبنان از مذاکرات با اسرائیل دفاع کرد
+
+▪️نواف سلام، نخست‌وزیر لبنان از مذاکرات با اسرائیل که روز جمعه در پنتاگون برگزار شد، دفاع کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/israel-lebanon-us-pentagon-negotiations-hezbollah-/8155608.html
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21090
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21090_1780170834.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کنسرت امشب کانیه وست
+در فاصله ی ۲ ساعتیه ایران
+ترکیه
+
+- بختتو ایرانی
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21089
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21089_1780170837.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عادی ترین فن جمهوری اسلامی :
+
+
+احمد ایراندوست : مشروبمو میخورم، کاباره‌مو میرم؛ دستبوس حاج قاسمم هستم
+
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 390594
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390594_1780170839.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تنها امید شیرابه‌های بجا مانده از زباله‌ی جمهوری اسلامی، یاُس و ناامیدی ماست!
+تراپی کنید ✌🏻
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390593
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390593_1780170841.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏نام اثر؛
+جدایی مجتبی از رهبر :))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390592
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390592_1780170842.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمیزارم اینو فراموش کنید
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 23:13
 ---
 
