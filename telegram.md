@@ -7,6 +7,133 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 00:22
+---
+
+## WithYashar — post 12966
+
+<div align="center">
+  <a href="telegram/content/WithYashar_12966_1780174341.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی :
+۴۰ هزار ایرانی برای تنگه هرمز یا برای یک توافق هسته‌ای کشته نشدن.
+ما باید فشار روی رژیم رو ادامه بدیم تا نتونه منابع مالی لازم برای تأمین و پرداخت به نیروهای نیابتی و مزدورهاش رو فراهم کنه.
+اما بهترین راه برای اینکه کار به حضور نیروهای خارجی در زمین نکشه اینه که به مردم ایران کمک بشه تا خودشون اون نقش رو بازی کنن
+@withyashar
+</div>
+
+## WithYashar — post 12965
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رییس سازمان عقیدتی سیاسی انتظامی:
+حکم قاتلان خامنه‌ای رو باید در ملا عام اجرا کنیم.
+@withyashar
+</div>
+
+## pm_afshaa — post 91915
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91915_1780174344.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ:
+یکی باید برای پاپ توضیح بده که شهردار شیکاگو کاملاً بی‌فایده است و اینکه ایران نمیتونه سلاح هسته‌ای داشته باشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91914
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91914_1780174345.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرنگار الحدث:
+درگیری‌های شدید بین حزب‌الله و نیروهای اسرائیلی در داخل شهرک دبین در جنوب لبنان.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 219125
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219125_1780174346.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئيس‌جمهوری آمریکا ضمن بازنشر تصاویری از دیدار شهردار شیکاگو، برندون جانسون، با پاپ، در شبکه تروت‌سو‌شال نوشت «یک نفر باید به پاپ توضیح دهد که شهردار شیکاگو بی‌عرضه‌ است و [جمهوری اسلامی] ایران نباید سلاح هسته‌ای داشته باشد!»
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21093
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21093_1780174346.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ دیگه کسخل شده و داره هرچیزیو تو توییتاش و حرفاش ربط میده به ایران و سلاح هسته ای
+
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282450
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آمریکا بریتانیا و استرالیا، فناوری شناور‌های هدایت‌پذیر را توسعه می‌دهند
+
+آمریکا، بریتانیا و استرالیا می‌گویند که قصد دارند در چارچوب پیمان نظامی سه‌جانبه خود، موسوم به آکوس، فناوری شناور‌های هدایت‌پذیر (شهپاد) را توسعه دهند. هدف از این اقدام، محافظت از کابل‌های زیرآبی و تقویت دفاعی عنوان شده است.
+
+انتظار می‌رود که فناوری خودروی زیرآبی بدون سرنشین تا سال آینده آماده شود.
+
+هزینه کل این پروژه اعلام نشده است، اما جان هیلی، وزیر دفاع بریتانیا، گفت که این کشور ۲۰۱ میلیون دلار به این پروژه کمک خواهد کرد.
+
+وزرای دفاع آمریکا، بریتانیا و استرالیا این تصمیم را در اجلاس امنیتی مجمع شانگری-لا در سنگاپوراعلام کردند؛ در حالی که پیش از آن انتقادهایی در مورد پیشرفت کند پروژه‌های آکوس منتشر شده بود.
+
+آقای هیلی با اذعان به این انتقادات گفت: «ما مدتی طولانی در آکوس، بیشتر صحبت می‌کردیم و خیلی کم عمل می‌کردیم اما این وضعیت اکنون تغییر کرده است.»
+
+بر اساس پیمان دفاعی آکوس که در سال ۲۰۲۱ آغاز شد، سه عضو پیمان، فناوری زیردریایی‌های هسته‌ای را توسعه می‌دهند و تخصص‌های نظامی خود را به اشتراک می‌گذارند.
+
+این پیمان عموما به عنوان اقدامی برای مقابله با حضور دریایی رو به رشد چین در اقیانوس‌های هند و آرام دیده می‌شود و همینطور گامی در برابر تنش فزاینده در سرزمین‌های مورد مناقشه این منطقه مانند دریای چین جنوبی.
+
+https://trib.al/M2XjY1u
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390597
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390597_1780174347.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از وقتی اینترنت وصل شده مردم خیلی با فالووراشون احساس راحتی میکنن، رسما تو گالری ملتیم:
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 123831
+
+<div align="center">
+  <a href="telegram/content/alonews_123831_1780174349.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ :
+- یکی باید به پاپ بگه شهردار شیکاگو به درد نمی‌خوره، و ایران هم نباید بمب هسته‌ای داشته باشه!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 00:12
 ---
 
