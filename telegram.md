@@ -7,6 +7,61 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 02:42
+---
+
+## VahidOOnLine — post 242965
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242965_1780182763.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی منتشرشده در رسانه‌های اجتماعی وابسته به جمهوری اسلامی نشان می‌دهد سپاه پاسداران، شامگاه شنبه نهم خرداد، قایق تندرویی را همراه با موشک ضدکشتی برای حامیان حکومت در میدان انقلاب تهران به نمایش گذاشت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342436
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+👉 Full story here:
+</div>
+
+## FoxNewsTwitter — post 342435
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342435_1780182765.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Proud Boys and communist activists clash outside Newark ICE detention center as Gov. Sherrill admits 5 of 6 people arrested this week came from out of state. What started as a protest over detainee conditions has become a full-blown ideological battleground — with 'national extremist groups' on both sides driving the chaos, not local residents.
+</div>
+
+## IranIntlTV — post 339802
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339802_1780182766.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی منتشرشده در رسانه‌های اجتماعی وابسته به جمهوری اسلامی نشان می‌دهد سپاه پاسداران، شامگاه شنبه نهم خرداد، قایق تندرویی را همراه با موشک ضدکشتی برای حامیان حکومت در میدان انقلاب تهران به نمایش گذاشت.
+</div>
+
+## BBCPersian — post 282453
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مراسم خاکسپاری مجتبی و میثم ویسی، دو برادر کُرد یارسان که دو روز پیش با شلیک نیروهای سپاه پاسداران در منطقه دالاهو کرمانشاه جان باخته بودند، امروز برگزار شد.
+
+سوران قربانی گزارش می‌دهد
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 02:32
 ---
 
