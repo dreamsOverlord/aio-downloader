@@ -7,6 +7,41 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 00:32
+---
+
+## FoxNewsTwitter — post 342434
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342434_1780174942.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: New Jersey Gov. Mikie Sherrill speaks out after anti-ICE chaos outside Delaney Hall, says she refuses to "give ICE a pretext" to expand operations.
+
+"Let me be clear: ICE engagement creates an incredibly dangerous situation. It makes the situation worse, and I refuse to back down in fighting the Trump administration."
+
+"We know that people from outside the state have been interfering in the protest and escalating them."
+
+"To the people coming from out of state to create chaos and dangerous situations: You should not be here."
+</div>
+
+## pm_afshaa — post 91916
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91916_1780174944.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نیویورک تایمز: میان ترامپ و جی‌ دی ونس، معاون اول او شکاف گسترده ای افتاده است و ترامپ به نظرات و سیاست معاون اول خود در قبال ایران تاخته است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 00:22
 ---
 
