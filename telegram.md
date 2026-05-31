@@ -7,6 +7,93 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 22:03
+---
+
+## WithYashar — post 13096
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۵ اسرائیل: گسترش عملیات اسرائیل در لبنان با هماهنگی دولت آمریکا انجام شد.
+@withyashar
+</div>
+
+## FarsiVOA — post 219201
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ده سال زندان برای شهروندی که از معترض نشسته در برابر ماموران فیلمبرداری کرد
+</div>
+
+## DW_Farsi — post 125353
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125353_1780252393.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 حسن و حسین امیری، دو برادر ۲۰ ساله، به اعدام محکوم شدند
+ 
+به گزارش هرانا، حسن و حسین امیری، دو برادر دوقلوی ۲۰ ساله زندانی در قزلحصار کرج، از سوی شعبه ۲۶ دادگاه انقلاب تهران به ریاست ایمان افشاری به اعدام محکوم شده‌اند. این حکم به‌تازگی صادر شده و مبنای آن اتهام "جاسوسی برای اسرائیل" عنوان شده است. در کیفرخواست این دو برادر، مشاهده تصاویری از ساختمان‌های آسیب‌دیده مبنای طرح اتهام "جاسوسی به نفع اسرائیل" قرار گرفته است.
+ 
+یک منبع مطلع به هرانا گفته است حسن و حسین امیری به دستور بازپرس پرونده به‌صورت جداگانه در زندان قزلحصار نگهداری می‌شوند و از حق ملاقات با یکدیگر محروم هستند.
+ 
+این دو برادر پیش‌تر در یکی از ایست‌های بازرسی و پس از بررسی تلفن همراهشان بازداشت شدند و به مدت دو ماه به‌صورت بلاتکلیف در زندان قزلحصار کرج نگهداری شدند.
+ 
+حسن و حسین امیری از دو سالگی در مراکز بهزیستی پرورش یافته‌اند و خانواده‌ای برای پیگیری وضعیت خود ندارند؛ موضوعی که نگرانی آشنایان آن‌ها را درباره روند رسیدگی به پرونده افزایش داده است.
+ 
+@dw_farsi
+</div>
+
+## IranianMinds — post 21160
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21160_1780252394.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی پشم ریزون از لحظه‌ی حمله آمریکا با موشک تاماهاک به بیت رهبری رو از «کلوز فرند» ببینید: 
+🔥
+
+@CloseFriend3
+@CloseFriend3
+</div>
+
+## Dirty_Kids — post 390673
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390673_1780252395.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی از عقلت استفاده میکنی🤣
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124025
+
+<div align="center">
+  <a href="telegram/content/alonews_124025_1780252395.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈به گفته منابع محلی، حداقل دو جت جنگنده نیروی هوایی ایران در حال انجام تمرینات آموزشی معمول بودند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124024
+
+<div align="center">
+  <a href="telegram/content/alonews_124024_1780252395.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پزشکیان در جلسه امروز دولت: یا با قدرت ادامه می‌دهم یا شهید می‌شوم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 21:52
 ---
 
@@ -245,8 +332,6 @@ https://ir.voanews.com/a/israel-lebanon-hezbollah-iran-beaufort/8155810.html
 
 ✅ @AloNews خبر جنگ
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->
