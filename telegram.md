@@ -7,6 +7,146 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 18:03
+---
+
+## WithYashar — post 13053
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+متن چکیده نسخه ۱۵ بیانیه جمعی از ایرانیان داخل و خارج کشور خطاب به شاهزاده رضا پهلوی شاهزاده گرامی، این متن جمع‌بندی مجموعه‌ای از دیدگاه‌ها، نگرانی‌ها و پیشنهادهای طیف گسترده‌ای از ایرانیان داخل و خارج کشور است که با هدف تقویت انسجام ملی، افزایش شفافیت…
+</div>
+
+## pm_afshaa — post 91938
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91938_1780237990.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سی‌بی‌اس: میانجی‌ها هنوز دارن روی توافق بین تهران و واشینگتن کار میکنن.
+
+ترامپ روز جمعه متن توافق رو دوباره اصلاح کرده و نسخه جدیدش رو فرستاده ایران تا تأییدش کنه، ولی تا الان هنوز پاسخی از طرف تهران داده نشده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5182
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5182_1780237990.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑
+🔺 تجمع ایرانیان مقیم مادرید در حمایت از انقلاب شیروخورشید و آگاه‌سازی افکار عمومی از جنایات رژیم در ایران
+
+#همبستگی #مادرید
+@DEJradio
+</div>
+
+## IranIntlTV — post 339897
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339897_1780237993.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در تروث‌سوشال اعلام کرد که تام باراک، سفیر ایالات متحده در ترکیه، به عنوان فرستاده ویژه ریاست‌جمهوری در امور عراق و سوریه منصوب شده است.
+
+ترامپ افزود: همزمان با پیشبرد همکاری راهبردی ما با دولت‌های سوریه و عراق، روابط ما با آن‌ها همچنان در حال گسترش است.
+https://iranintl.com/202605311800
+</div>
+
+## FarsiVOA — post 219173
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه تایمز به نقل از اسناد تازه دادگاه آمریکا گزارش داده که یک فرد متهم به نقش داشتن در حملات علیه اهداف یهودی در بریتانیا و اروپا گفته است سه روز پیش از آغاز اقدام نظامی آمریکا و اسرائیل علیه جمهوری اسلامی، با علی خامنه‌ای دیدار کرده بود.
+</div>
+
+## Persian_Trend_Official — post 15399
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست وزیر اسرائیل: من به ارتش اسرائیل دستور دادم که مانور را در لبنان گسترش دهد.
+
+نیروهای ما از موانع قدرتمند عبور کردند. آنها زمین های فرماندهی را تصرف کردند و خط الراس بوفورت را تصرف کردند و اکنون دستور من این است که تسلط خود را بر مناطقی که تحت کنترل حزب الله بودند، عمیق تر و گسترش دهیم.
+
+ما در حال آغاز اقدام هستیم، ما در همه جبهه ها عمل می کنیم در سوریه، غزه و لبنان. زمان می برد، اما ما ماموریت را کامل خواهیم کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21145
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21145_1780237993.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمید رسایی قبل از جنگ :
+مجلس رو تعطیل کنیم بودجه‌اش رو بدیم به مردم.
+
+بعد از جنگ :
+مجلس باید باز شود ، اقدامات تقنینی و نظارتی صورت بگیرد
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 390646
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک پست یه گزارش تهیه کرده از دغدغه‌های ذهنی این روزهای آمریکاییا. واقعا آدم کله‌ش خراب میشه🤦🏻‍♂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390645
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390645_1780237994.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیلاکامرانی: اروپا زندگی میکند،یکی ازهزاران پرستوی جمهوری اسلامی ،میگه هتل روزدن فقط من زنده موندم بالباس راحتی و بدون حجاب و برای باور پذیرتر بودن سوتین هم نپوشیده و پریده بیرون کولی بازی در میاره که وای کل هتل رو کشتن!
+در طی جنگ ۱۲ روزه و ۳۸ روزه هیچ هتلی در تهران و در مل در ایران حتی آسیب هم ندیده چه برسه به هدف قرار گرفتن!
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 123975
+
+<div align="center">
+  <a href="telegram/content/alonews_123975_1780237996.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع خبری مدعی حمله موشکی به حزب ضد «پاک» در کردستان عراق شدند.
+
+
+🔴یک مقام حزب آزادی کردستان به روداو گفت که روز یکشنبه پایگاه مهم وابسته به این گروه مخالف ایران نزدیک اربیل هدف حمله موشکی قرار گرفت.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123974
+
+<div align="center">
+  <a href="telegram/content/alonews_123974_1780237996.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه LBCI لبنان: روبیو دو روز دیگر آتش‌بس فراگیر در لبنان را اعلام می‌کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 17:52
 ---
 
