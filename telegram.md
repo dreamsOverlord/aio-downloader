@@ -7,6 +7,113 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 10:02
+---
+
+## VahidOOnLine — post 242999
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242999_1780209161.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسال شده به ایران‌اینترنشنال نشان می‌دهد گروهی از ایرانیان شنبه ۹ خرداد در سن‌خوزه کالیفرنیا در آمریکا، علیه جمهوری اسلامی در خیابان‌های شهر کاروان خودرویی به راه انداختند و پرچم‌های شیروخورشید به دست گرفتند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 339825
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339825_1780209163.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسال شده به ایران‌اینترنشنال نشان می‌دهد گروهی از ایرانیان شنبه ۹ خرداد در سن‌خوزه کالیفرنیا در آمریکا، علیه جمهوری اسلامی در خیابان‌های شهر کاروان خودرویی به راه انداختند و پرچم‌های شیروخورشید به دست گرفتند.
+</div>
+
+## Persian_Trend_Official — post 15368
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمایش شناور تندرو هجومی ۲۷ رجب در تجمع هواداران جمهوری اسلامی در میدان انقلاب
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15367
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15367_1780209165.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به مخاطب نامعلوم: شما دارید گیج و سردرگم میشوید!
+
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 282472
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖊علی رمضانیان، روزنامه‌نگار اقتصادی
+
+🔻فقر در ایران دیگر تنها در حاشیه شهرها یا روستاهای دورافتاده دیده نمی‌شود، بلکه نشانه‌های آن را می‌توان در خیابان‌های اصلی تهران، واگن‌های مترو، صف‌های داروخانه، بازارهای محلی، مدارس، خانه‌های اجاره‌ای و در سبک زندگی طبقه متوسط مشاهده کرد.
+
+آنچه در سال‌های گذشته از آن با عنوان «فشار اقتصادی» یاد می‌شد، اکنون برای میلیون‌ها شهروند ایرانی به وضعیتی دائمی و فرساینده بدل شده است. این بحران پس از جنگ آمریکا و اسرائیل با ایران، رکود عمیق اقتصادی، قطعی گسترده اینترنت و جهش تورمی، ابعاد تازه و نگران‌کننده‌تری پیدا کرده است.
+
+زیر لایه ظاهری زندگی روزمره، شبکه‌ای از فقر، بدهکاری، بیکاری، ناامیدی و فرسایش معیشتی در حال گسترش است. بسیاری از خانواده‌ها دیگر نه برای «پیشرفت»، بلکه صرفا برای «زنده ماندن» تلاش می‌کنند.
+
+بیشتر بخوانید:
+
+📸 Getty/ EPA
+@BBCPersian
+</div>
+
+## alonews — post 123858
+
+<div align="center">
+  <a href="telegram/content/alonews_123858_1780209166.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آکسیوس به نقل از منابع: درخواست های اخیر ترامپ جرقه دور جدیدی از رفت و آمد بین واشنگتن و تهران را زده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123857
+
+<div align="center">
+  <a href="telegram/content/alonews_123857_1780209166.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 یکی از مقامات کاخ سفید، به آکسیوس: آماده ایم یک هفته یا بیشتر منتظر بمانیم تا اطمینان حاصل کنیم که رئیس جمهور به خواسته های خود از ایران می رسد. 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123856
+
+<div align="center">
+  <a href="telegram/content/alonews_123856_1780209166.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 یکی از مقامات کاخ سفید، به آکسیوس:
+آماده ایم یک هفته یا بیشتر منتظر بمانیم تا اطمینان حاصل کنیم که رئیس جمهور به خواسته های خود از ایران می رسد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 09:52
 ---
 
