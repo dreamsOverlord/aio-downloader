@@ -7,6 +7,23 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 07:42
+---
+
+## alonews — post 123844
+
+<div align="center">
+  <a href="telegram/content/alonews_123844_1780200733.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عوستاد رائفی پور:
+مطمئنم آمریکا بازم به ما حمله میکنه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 07:32
 ---
 
