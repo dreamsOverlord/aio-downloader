@@ -7,6 +7,92 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 06:12
+---
+
+## VahidOOnLine — post 242983
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242983_1780195333.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در مصاحبه با لارا ترامپ، مجری فاکس‌نیوز، با اشاره به اینکه آمریکا به یک «توافق خیلی خوب» با جمهوری اسلامی نزدیک است، گفت توافق با حکومت ایران را ترجیح می‌دهد، اما برای بازگشت به عملیات نظامی نیز آماده است.
+ترامپ گفت ترجیح می‌دهد با ایران به توافق برسد، زیرا در صورت امضای توافق، تنگه هرمز می‌تواند بلافاصله باز شود.
+او تاکید کرد تنها تضمینی که می‌خواهد این است که ایران هیچ سلاح هسته‌ای نداشته باشد و گفت تهران با این موضوع موافقت کرده است.
+ترامپ همچنین گفت «بزرگ‌ترین دارایی» حکومت ایران رسانه‌های «اخبار جعلی» هستند، چون موفقیت‌های آمریکا را کوچک جلوه می‌دهند. او افزود آمریکا در نبرد پیروزی بزرگی به دست ‌آورده، اما این رسانه‌ها می‌گویند واشینگتن شکست خورده است.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342440
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342440_1780195333.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Graham Platner exchanged sexual texts with several women after marrying his wife two years ago, according to a report.
+
+Platner’s campaign confirmed the text exchanges to Politico following a report from the Wall Street Journal that claimed his wife, Amy Gertner, told a campaign aide about the texts after he launched his Senate bid as they began looking into potential political liabilities.
+
+She made the private revelation before Platner held a campaign rally last year supported by Sen. Bernie Sanders, I-Vt., but the aide decided the texts were a private matter for the couple, the campaign said, according to the newspaper.
+
+"I confided deeply personal details about my marriage to someone I considered a friend," Gertner said in a statement to WSJ. "In the months since, I have had to watch as she spread malicious gossip to anyone who would take her call. I trusted this person with the most private chapter of our lives — the early days of our marriage before...
+
+Перейти на оригинальный пост
+</div>
+
+## IranIntlTV — post 339807
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339807_1780195334.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در مصاحبه با لارا ترامپ، مجری فاکس‌نیوز، با اشاره به اینکه آمریکا به یک «توافق خیلی خوب» با جمهوری اسلامی نزدیک است، گفت توافق با حکومت ایران را ترجیح می‌دهد، اما برای بازگشت به عملیات نظامی نیز آماده است.
+ترامپ گفت ترجیح می‌دهد با ایران به توافق برسد، زیرا در صورت امضای توافق، تنگه هرمز می‌تواند بلافاصله باز شود.
+او تاکید کرد تنها تضمینی که می‌خواهد این است که ایران هیچ سلاح هسته‌ای نداشته باشد و گفت تهران با این موضوع موافقت کرده است.
+ترامپ همچنین گفت «بزرگ‌ترین دارایی» حکومت ایران رسانه‌های «اخبار جعلی» هستند، چون موفقیت‌های آمریکا را کوچک جلوه می‌دهند. او افزود آمریکا در نبرد پیروزی بزرگی به دست ‌آورده، اما این رسانه‌ها می‌گویند واشینگتن شکست خورده است.
+
+https://iranintl.com/202605318079
+</div>
+
+## FarsiVOA — post 219136
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219136_1780195335.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئیس‌جمهوری آمریکا، در مصاحبه‌ای با لارا ترامپ از فاکس‌نیوز که از او پرسید «یک توافق خوب» با جمهوری اسلامی چگونه است؟ گفت «خب، اول از همه هیچ توافقی آن‌قدر خوب نیست که رسانه‌ها آن را خوب پوشش دهند. اما ما در حال دستیابی به یک توافق عالی هستیم...؛ در غیر این صورت دوباره برمی‌گردیم و از طریق اقدام نظامی کار را تمام می‌کنیم.»
+آقای ترامپ گفت: «اما رسیدن به توافق سریع‌تر خواهد بود. احتمالاً از نظر انسانی هم بهتر است. جنبه مثبتی هم دارد؛ جان افراد زیادی را نجات می‌دهد، چه از طرف مقابل باشند و چه از هر طرف دیگر.»
+او افزود: «ما به یک توافق بسیار خوب نزدیک شده‌ایم و اگر بتوانیم آن را نهایی کنیم، عالی است. در غیر این صورت، دوباره سراغ «وزارت جنگ» می‌رویم، همان‌طور که ما آن را می‌نامیم. و این رویکرد بسیار موفق بوده است. ونزوئلا را دیدید؛ آن یک پیروزی یک‌روزه بود و این مورد هم عملاً همین حالا یک پیروزی محسوب می‌شود. ما اساساً نیروهای نظامی آن‌ها را شکست داده‌ایم.»
+آقای ترامپ گفت: «من ترجیح می‌دهم به توافق برسیم، زیرا می‌توانیم بلافاصله پس از امضای توافق، تنگه را بازگشایی کنیم.»
+
+@FarsiVOA
+</div>
+
+## BBCPersian — post 282459
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖋بخش مانیتورینگ
+بی‌بی‌سی
+
+حزب جمهوری‌خواه خلق ترکیه، حزب اصلی مخالف دولت، و نظام دموکراتیک این کشور، پس از آن‌که دادگاهی اوزگور اوزل را از رهبری حزب برکنار کرد، با چالشی روبه‌رو شده‌اند که برخی آن را تهدیدی برای موجودیت سیاسی این حزب می‌دانند.
+
+پس از حکم دادگاه، کمال قلیچداراوغلو، رئیس پیشین حزب جمهوری‌خواه خلق، روز ۲۱ مه به ریاست حزب بازگردانده شد. دادگاه، کنگره سال ۲۰۲۳ این حزب را که در آن اوزگور اوزل به رهبری انتخاب شده بود، باطل اعلام کرد.
+
+با وجود خشم گسترده حامیان اپوزیسیون، انتظار می‌رود آقای قلیچداراوغلو به زودی رهبری حزب را در دست بگیرد و وارد مقر اصلی حزب جمهوری‌خواه خلق شود. رسانه‌های نزدیک به دولت نیز از هم‌اکنون او را رهبر این حزب معرفی می‌کنند.
+ادامه مطلب⬇️
+
+📸GettyImages/ Reuters/ Anadolu via Getty Images/ HABER GLOBAL/ AFP via Getty Images/ dia images via Getty Images/ EPA-EFE/REX/Shutterstock/ LightRocket via Getty Images
+https://trib.al/rNi7taT
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 06:02
 ---
 
