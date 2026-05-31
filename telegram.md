@@ -7,6 +7,149 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 12:12
+---
+
+## VahidOOnLine — post 243018
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243018_1780216974.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران‌اینترنشنال، لحظه کشته شدن جاویدنام مجید فرخزاد را در شامگاه ۱۸ دی ۱۴۰۴ در خیابان پیروزی تهران نشان می‌دهد. فرخزاد، ۳۷ ساله و پدر یک فرزند پنج ساله بود که با اصابت گلوله جان باخت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12994
+
+
+
+
+## IranIntlTV — post 339847
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339847_1780216978.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران‌اینترنشنال، لحظه کشته شدن جاویدنام مجید فرخزاد را در شامگاه ۱۸ دی ۱۴۰۴ در خیابان پیروزی تهران نشان می‌دهد. فرخزاد، ۳۷ ساله و پدر یک فرزند پنج ساله بود که با اصابت گلوله جان باخت.
+</div>
+
+## Persian_Trend_Official — post 15379
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15379_1780216981.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تاریخ توییت ۷ اسفند ۱۴۰۴
+</div>
+
+## Persian_Trend_Official — post 15378
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15378_1780216982.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک تایمز: ترامپ سعی دارد جنگ ایران را تقریباً تمام شده و یک موفقیت کامل جلوه دهد، اما روایت او با واقعیت مطابقت ندارد و پس از سال‌ها تحمیل روایت خود از وقایع، اکنون با بحرانی روبرو است که با روایت او در تضاد است.
+
+در بهترین حالت، تغییری در رهبری رخ داده است، اما اینکه حامیان جنگ آن را به عنوان یک تغییر مثبت ارائه دهند، نادرست است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157736
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ارتش اسرائیل روز یک‌شنبه ۱۰ خرداد اعلام کرد عملیات زمینی خود در جنوب لبنان را به مناطق بیشتری گسترش داده و نیروهایش برای تقویت مواضع نظامی اسرائیل در این منطقه از رود لیتانی عبور کرده‌اند. 🔸ارتش اسرائیل در بیانیه‌ای گفت «شمار قابل توجهی» از نیروهای زمینی…
+</div>
+
+## RadioFarda — post 157735
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157735_1780216983.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ارتش اسرائیل روز یک‌شنبه ۱۰ خرداد اعلام کرد عملیات زمینی خود در جنوب لبنان را به مناطق بیشتری گسترش داده و نیروهایش برای تقویت مواضع نظامی اسرائیل در این منطقه از رود لیتانی عبور کرده‌اند.
+
+🔸ارتش اسرائیل در بیانیه‌ای گفت «شمار قابل توجهی» از نیروهای زمینی این کشور عملیات تهاجمی را برای گسترش «خط دفاعی پیشرو» آغاز کرده‌اند و این عملیات اکنون به مناطق بیشتری کشیده شده است.
+
+
+@RadioFarda
+</div>
+
+## Dirty_Kids — post 390616
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390616_1780216983.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمیدونم چجوری بگم ولی این مدل ضجه‌ها حالمو شاد میکنه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390615
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390615_1780216984.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مامانش موهاشو عروسکی شونه کرده
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113262
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو نفر توسط ماموران سپاه پاسداران در ارومیه بازداشت شدند
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – روابط عمومی سپاه پاسداران از #بازداشت دو تن در ارومیه خبر داد و مدعی شد که این افراد با نهادهای وابسته به اسرائیل در ارتباط بوده‌اند.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 123876
+
+<div align="center">
+  <a href="telegram/content/alonews_123876_1780216984.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اتحادیه اروپا در حالی که جنگ در خاورمیانه وارد چهارمین ماه خود می‌شود، در حال بررسیِ تعلیقِ موقتِ سقف قیمتِ نفت روسیه است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123875
+
+<div align="center">
+  <a href="telegram/content/alonews_123875_1780216985.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 نمای نزدیک‌تری از بخش دم هواپیمای سوخت‌رسان KC-135 با شماره 63-8028 متعلق به نیروی هوایی ایالات متحده که هنگام حضور روی زمین در عربستان سعودی بر اثر ترکش‌های پهپاد/موشک بالستیک ایرانی دچار آسیب شده ولی کماکان در حال خدمت است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 12:03
 ---
 
