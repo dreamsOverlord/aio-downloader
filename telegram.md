@@ -7,6 +7,25 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 06:02
+---
+
+## FoxNewsTwitter — post 342439
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342439_1780194741.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"The ballroom will be right here."
+
+President Trump shows Lara Trump a behind-the-scenes look at construction for the White House ballroom, which he calls a gift to America from him and "great patriots."
+
+"It will be the greatest facility of its kind ever built," the president says as he shows off what will be the ballroom entrance.
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 05:52
 ---
 
