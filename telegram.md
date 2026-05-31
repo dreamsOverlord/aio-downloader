@@ -7,6 +7,229 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 19:33
+---
+
+## VahidOOnLine — post 243072
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243072_1780243398.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک‌تایمز به نقل از سه مقام آگاه گزارش داد دونالد ترامپ شروط چارچوب احتمالی توافق برای پایان جنگ با ایران را سخت‌تر کرده و نسخه اصلاح‌شده را برای بررسی به تهران ارسال کرده است. هنوز مشخص نیست چه تغییراتی در متن اعمال شده است.
+
+بر اساس این گزارش، ترامپ نسبت به بخش‌هایی از توافق که شامل آزادسازی دارایی‌های ایران می‌شود ابراز نگرانی کرده و از طولانی شدن پاسخ تهران به پیشنهادهای آمریکا ناراضی است.
+
+این تغییرات با هدف افزایش فشار برای پذیرش چارچوبی انجام شده که پیش‌تر برای تایید به مجتبی خامنه‌ای ارسال شده بود. به گفته منابع، برقراری ارتباط و دریافت پاسخ از مجتبی خامنه‌ای دشوار است و هرگونه تغییر در این سند که به‌عنوان «یادداشت تفاهم» شناخته می‌شود، ممکن است موجب تاخیرهای بیشتر در روند مذاکرات شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13064
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من اون 250 صفحه دوره گذار و خوندم واسه وضعیت الان ما بیشتر شبیه رویا میمونه
+الان برنامه برای سقوط مهمه
+که هیچی در موردش توضیح نمیدن 🤦‍♀🤦‍♀🤦‍♀
+</div>
+
+## WithYashar — post 13063
+
+
+
+
+## pm_afshaa — post 91950
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سی‌ان‌ان: ترامپ با آزادسازی هرگونه دارایی ایران در توافق احتمالی مخالفت کرده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339907
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339907_1780243399.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ایالات متحده (سنتکام) با انتشار تصاویری، جزئیاتی از فعالیت یک ناو هواپیمابر آمریکایی که اکنون نزدیک ایران هستند منتشر و آن را «شهری روی دریا» توصیف کرد.
+
+در حالی که به دلیل آتش‌بس جاری با جمهوری اسلامی، عملیات‌ها محدودتر شده‌اند، مقامات آمریکایی می‌گویند نیروی دریایی ایالات متحده همچنان آماده است در صورت نیاز حملات را افزایش دهد.
+
+سنتکام نوشت: «یک ناو هواپیمابر نیروی دریایی آمریکا در اصل یک شهر مستقل روی دریاست. با طولی حدود سه زمین فوتبال و بیش از ۵۰۰۰ ملوان در آن، برای اینکه عملیات به‌طور روان پیش برود، حضور و همکاری همه نیروها—چه در عرشه و چه زیر آن—ضروری است.»
+
+ویدئوهای منتشرشده در پستی در شبکه اجتماعی ایکس نشان می‌دهد ملوانان در حال انجام وظایف مختلف روی این ناو هستند؛ از تهیه غذا گرفته تا هدایت هواپیماها روی عرشه.
+https://iranintl.com/202605319516
+</div>
+
+## FarsiVOA — post 219182
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺افزایش فشار بر زندانیان اوین؛ از سلول انفرادی تا محرومیت درمانی
+
+◾️کانون حقوق بشر ایران روز یکشنبه ۱۰ خرداد ۱۴۰۵ با انتشار گزارشی از افزایش فشارها بر زندانیان در زندان اوین خبر داد و اعلام کرد که در ماه‌های اخیر مواردی از محرومیت درمانی، محدودیت تماس و ملاقات، انتقال به سلول‌های انفرادی و برخوردهای خشونت‌آمیز با زندانیان گزارش شده است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/pressure-mounts-evin-prison/8155787.html
+</div>
+
+## FarsiVOA — post 219181
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با وجود اعلام رسمی بازگشت اینترنت بین‌الملل، گزارش‌های داخلی و خارجی روزهای اخیر تصویر متفاوتی نشان می‌دهند: فیلترینگ سنگین، اختلال در پیام‌رسان‌ها، محدودیت اپ‌استورها و ناپایداری ارتباط دیتاسنترها همچنان ادامه دارد. ترافیک اینترنت ایران هنوز به نصف سطح عادی هم نرسیده است.
+
+نت‌بلاکس در آخرین ارزیابی خود اعلام کرده شرایط فعلی به دوران میان اعتراضات دی‌ماه و جنگ اخیر شباهت دارد و نه به وضعیت پیش از بحران.
+
+گزارش کامل را در وب‌سایت صدای آمریکا بخوانید.
+
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15407
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15407_1780243399.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صادرات تخم مرغ ممنوع شد. طبق نامه معاونت توسعه بازرگانی وزارت جهاد کشاورزی به مدیرکل دفتر صادرات سازمان توسعه تجارت و گمرک، صادرات تخم‌مرغ خوراکی تا اطلاع ثانوی ممنوع شد .🫆: Ⓜ 🆔:@persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15406
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15406_1780243400.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷
+🇮🇷 حملات موشکی سپاه به سمت اقلیم کردستان، عراق.
+
+🚀
+🚀
+🚀
+🚀
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 282506
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282506_1780243400.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سرخط خبرهای روز یکشنبه، ۱۰ خرداد ۱۴۰۵
+
+https://trib.al/Clx2mh7
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390660
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خامنه‌ای اصلا نفهمید جنگ شده، یهو در اتاقو باز کردن بیت براش دید عه هردوتا دسشو میتونه تکون بده که یهو دید قاسم سلیمانی داره میاد بغلش کنه
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390659
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390659_1780243402.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یارو ساقیه، زیاد خیس نکن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390658
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390658_1780243402.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قصه داره قشنگ میشه، بلاخره تو اینا هم پیدا میشه کسایی که یکم از مغزشون استفاده کنن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390657
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390657_1780243404.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌎با بهبود نسبی وضعیت اینترنت و بازگشت محدود دسترسی به شبکه بین‌الملل، موفق شدیم ضمن حفظ کیفیت و پایداری سرویس‌ها، قیمت را تا هر گیگابایت 20 هزار تومان کاهش دهیم
+🖥
+
+
+🟣با وجود اینکه شرایط اینترنت همچنان ناپایدار است و وضعیت پهنای باند بین‌الملل به ثبات کامل نرسیده، تیم فنی بادبان با توسعه زیرساخت‌ها و بهره‌گیری از سرورهای جدید از سرویس‌دهندگان معتبر، توانسته هزینه‌ها را بهینه کرده و سرویس‌ها را با قیمت مناسب‌تری ارائه دهد
+⛵️
+G10
+از همراهی و اعتماد شما سپاسگزاریم
+💜
+
+
+🛡@BadBan_VPN | کانال 
+
+🤖@BadBan_VPNBot | ربات 
+
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## Hranews — post 113283
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برنامه «به من چه؟» توقیف شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– پخش برنامه «به من چه؟» که از پلتفرم روبیکا پخش می‌شد، متوقف شد. مجید واشقانی، مجری این برنامه اعلام کرد که این اقدام با دستور سازمان تنظیم مقررات رسانه‌های صوت و تصویر فراگیر در فضای مجازی، صورت گرفته است.
+
+ادامه مطلب
+
+#توقیف_برنامه #مجید_واشقانی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 123995
+
+<div align="center">
+  <a href="telegram/content/alonews_123995_1780243404.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منبع آمریکایی به سی بی اس :
+فعلاً برای رسیدن به توافق با ایران هیچ ضرب‌الاجل و زمان مشخصی تعیین نشده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 19:23
 ---
 
